@@ -1,5 +1,24 @@
-# Supernatural
+# The Supernatural
+
+## Artifacts
+
+---
+
+## Magics
+
+---
 
 ## Magics# Supernatural
 
-## Magics
+---
+
+## Metaphysics
+
+---
+
+## Planes
+
+---
+
+---
+
