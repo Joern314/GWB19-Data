@@ -1,0 +1,77 @@
+[
+  {
+    "name": "Rictus",
+    "spheres": ["Law", "Hunt"],
+    "player": "/u/Horatius-Cocles",
+  },
+  {
+    "name": "Shilo",
+    "spheres": ["Agriculture", "Competition"],
+    "player": "/u/AAAGamer8663",
+  },
+  {
+    "name": "Sarah",
+    "spheres": ["Darkness", "Protection"],
+    "player": "/u/WritingInfinity",
+  },
+  {
+    "name": "??",
+    "spheres": ["Sea", "Theft"],
+    "player": "/u/Makator"
+  },
+  {
+    "name": "Yashqal",
+    "spheres": ["Dance", "Birds"],
+    "player": "/u/hpllamacrft"
+  },
+  {
+    "name": "Azrakal",
+    "spheres": ["Blood", "Power"],
+    "player": "/u/Plintstorm"
+  },
+  {
+    "name": "Oryllia",
+    "spheres": ["Hexes", "Contracts"],
+    "player": "/u/DragoneyeCreations"
+  },
+  {
+    "name": "The Sorcerer",
+    "spheres": ["Magic", "Death"],
+    "player": "/u/Gwydion-Drys"
+  },
+  {
+    "name": "Lyva",
+    "spheres": ["Metal", "Greed"],
+    "player": "/u/smcadam"
+  },
+  {
+    "name": "Kain Marson & Prismari",
+    "spheres": ["Storm", "Heroes"],
+    "player": "/u/Rhaegar1994"
+  },
+  {
+    "name": "Sunda",
+    "spheres": ["Animals", "Wilds"],
+    "player": "/u/StarOfTheSouth"
+  },
+  {
+    "name": "Gon Gryn",
+    "spheres": ["Earth", "Vengeance"],
+    "player": "/u/WHOSGOTYOURSKINNOW"
+  },
+  {
+    "name": "Malaphet",
+    "spheres": ["Stars", "Minds"],
+    "player": "/u/CruelObsidian"
+  },
+  {
+    "name": "Dawri",
+    "spheres": ["Fate", "Time"],
+    "player": "/u/gorok1089"
+  },
+  {
+    "name": "Mair",
+    "spheres": ["Life", "War"],
+    "player": "/u/AndrewJamesDrake"
+  }
+]
