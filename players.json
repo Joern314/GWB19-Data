@@ -1,77 +1,167 @@
 [
   {
-    "name": "Rictus",
-    "spheres": ["Law", "Hunt"],
-    "player": "/u/Horatius-Cocles",
-  },
-  {
-    "name": "Shilo",
-    "spheres": ["Agriculture", "Competition"],
-    "player": "/u/AAAGamer8663",
-  },
-  {
-    "name": "Sarah",
-    "spheres": ["Darkness", "Protection"],
-    "player": "/u/WritingInfinity",
-  },
-  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
     "name": "??",
-    "spheres": ["Sea", "Theft"],
-    "player": "/u/Makator"
+    "player": "/u/Makator",
+    "spheres": [
+      "Sea",
+      "Theft"
+    ]
   },
   {
-    "name": "Yashqal",
-    "spheres": ["Dance", "Birds"],
-    "player": "/u/hpllamacrft"
-  },
-  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
     "name": "Azrakal",
-    "spheres": ["Blood", "Power"],
-    "player": "/u/Plintstorm"
+    "player": "/u/Plintstorm",
+    "spheres": [
+      "Blood",
+      "Power"
+    ]
   },
   {
-    "name": "Oryllia",
-    "spheres": ["Hexes", "Contracts"],
-    "player": "/u/DragoneyeCreations"
-  },
-  {
-    "name": "The Sorcerer",
-    "spheres": ["Magic", "Death"],
-    "player": "/u/Gwydion-Drys"
-  },
-  {
-    "name": "Lyva",
-    "spheres": ["Metal", "Greed"],
-    "player": "/u/smcadam"
-  },
-  {
-    "name": "Kain Marson & Prismari",
-    "spheres": ["Storm", "Heroes"],
-    "player": "/u/Rhaegar1994"
-  },
-  {
-    "name": "Sunda",
-    "spheres": ["Animals", "Wilds"],
-    "player": "/u/StarOfTheSouth"
-  },
-  {
-    "name": "Gon Gryn",
-    "spheres": ["Earth", "Vengeance"],
-    "player": "/u/WHOSGOTYOURSKINNOW"
-  },
-  {
-    "name": "Malaphet",
-    "spheres": ["Stars", "Minds"],
-    "player": "/u/CruelObsidian"
-  },
-  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
     "name": "Dawri",
-    "spheres": ["Fate", "Time"],
-    "player": "/u/gorok1089"
+    "player": "/u/gorok1089",
+    "spheres": [
+      "Fate",
+      "Time"
+    ]
   },
   {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Gon Gryn",
+    "player": "/u/WHOSGOTYOURSKINNOW",
+    "spheres": [
+      "Earth",
+      "Vengeance"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Kain Marson & Prismari",
+    "player": "/u/Rhaegar1994",
+    "spheres": [
+      "Storm",
+      "Heroes"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Lyva",
+    "player": "/u/smcadam",
+    "spheres": [
+      "Metal",
+      "Greed"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
     "name": "Mair",
-    "spheres": ["Life", "War"],
-    "player": "/u/AndrewJamesDrake"
+    "player": "/u/AndrewJamesDrake",
+    "spheres": [
+      "Life",
+      "War"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Malaphet",
+    "player": "/u/CruelObsidian",
+    "spheres": [
+      "Stars",
+      "Minds"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Oryllia",
+    "player": "/u/DragoneyeCreations",
+    "spheres": [
+      "Hexes",
+      "Contracts"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Rictus",
+    "player": "/u/Horatius-Cocles",
+    "spheres": [
+      "Law",
+      "Hunt"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Sarah",
+    "player": "/u/WritingInfinity",
+    "spheres": [
+      "Darkness",
+      "Protection"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Shilo",
+    "player": "/u/AAAGamer8663",
+    "spheres": [
+      "Agriculture",
+      "Competition"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "The Sorcerer",
+    "player": "/u/Gwydion-Drys",
+    "spheres": [
+      "Magic",
+      "Death"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Sunda",
+    "player": "/u/StarOfTheSouth",
+    "spheres": [
+      "Animals",
+      "Wilds"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "Yashqal",
+    "player": "/u/hpllamacrft",
+    "spheres": [
+      "Dance",
+      "Birds"
+    ]
   }
 ]

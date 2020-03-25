@@ -1,56 +1,44 @@
-#### Rictus
-**Player**: /u/Horatius-Cocles
-**Origin**: EX appears in order to bring the law
+**??** /u/Makator 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Shilo
-**Player**: /u/AAAGamer8663
-**Origin**: spirits for different types of grain and other produce => race each other for control => Shilo won and is now god of agriculture
+**Azrakal** /u/Plintstorm 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Sarah
-**Player**: /u/WritingInfinity
-**Origin**: void left by the old world, alongside her the darkness was created
+**Dawri** /u/gorok1089 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### ??
-**Player**: /u/Makator
-**Origin**: ??
+**Gon Gryn** /u/WHOSGOTYOURSKINNOW 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Yashqal
-**Player**: /u/hpllamacrft
-**Origin**: the gods mourned the loss of the void, shakes of grief emanated the mass of vibrating limbs
+**Kain Marson & Prismari** /u/Rhaegar1994 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Azrakal
-**Player**: /u/Plintstorm
-**Origin**: born from a divine drop of blood
+**Lyva** /u/smcadam 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Oryllia
-**Player**: /u/DragoneyeCreations
-**Origin**: remnants of the world when the sacred formed => the profane => she formed
+**Mair** /u/AndrewJamesDrake 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### The Sorcerer
-**Player**: /u/Gwydion-Drys
-**Origin**: EX wanders around, searches for a home for his people
+**Malaphet** /u/CruelObsidian 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Lyva
-**Player**: /u/smcadam
-**Origin**: EX wants to claim her own planet
+**Oryllia** /u/DragoneyeCreations 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Kain Marson & Prismari
-**Player**: /u/Rhaegar1994
-**Origin**: EX follow trail of Lyva
+**Rictus** /u/Horatius-Cocles 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Sunda
-**Player**: /u/StarOfTheSouth
-**Origin**: ??
+**Sarah** /u/WritingInfinity 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Gon Gryn
-**Player**: /u/WHOSGOTYOURSKINNOW
-**Origin**: EX travel alongside Lyva
+**Shilo** /u/AAAGamer8663 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Dawri
-**Player**: /u/gorok1089
-**Origin**: EX travels the multiverse, to experience and grant boons
+**The Sorcerer** /u/Gwydion-Drys 
+> Acts: 30 Gain: +0 Draw: -0
 
-#### Mair
-**Player**: /u/AndrewJamesDrake
-**Origin**: born alongside the Well of Life
- 
+**Sunda** /u/StarOfTheSouth 
+> Acts: 30 Gain: +0 Draw: -0
+
+**Yashqal** /u/hpllamacrft 
+> Acts: 30 Gain: +0 Draw: -0
