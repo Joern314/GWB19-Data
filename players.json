@@ -3,17 +3,6 @@
     "acts": 30,
     "draw": 0,
     "gain": 0,
-    "name": "??",
-    "player": "/u/Makator",
-    "spheres": [
-      "Sea",
-      "Theft"
-    ]
-  },
-  {
-    "acts": 30,
-    "draw": 0,
-    "gain": 0,
     "name": "Azrakal",
     "player": "/u/Plintstorm",
     "spheres": [
@@ -107,6 +96,17 @@
     "spheres": [
       "Law",
       "Hunt"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
+    "name": "The Salty Knave",
+    "player": "/u/Makator",
+    "spheres": [
+      "Sea",
+      "Theft"
     ]
   },
   {

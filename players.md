@@ -1,6 +1,3 @@
-**??** (Sea & Theft) /u/Makator 
-> Acts: 30 Gain: +0 Draw: -0
-
 **Azrakal** (Blood & Power) /u/Plintstorm 
 > Acts: 30 Gain: +0 Draw: -0
 
@@ -26,6 +23,9 @@
 > Acts: 30 Gain: +0 Draw: -0
 
 **Rictus** (Law & Hunt) /u/Horatius-Cocles 
+> Acts: 30 Gain: +0 Draw: -0
+
+**The Salty Knave** (Sea & Theft) /u/Makator 
 > Acts: 30 Gain: +0 Draw: -0
 
 **Sarah** (Darkness & Protection) /u/WritingInfinity 
