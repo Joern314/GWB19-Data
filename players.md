@@ -1,44 +1,44 @@
-**??** /u/Makator 
+**??** (Sea & Theft) /u/Makator 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Azrakal** /u/Plintstorm 
+**Azrakal** (Blood & Power) /u/Plintstorm 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Dawri** /u/gorok1089 
+**Dawri** (Fate & Time) /u/gorok1089 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Gon Gryn** /u/WHOSGOTYOURSKINNOW 
+**Gon Gryn** (Earth & Vengeance) /u/WHOSGOTYOURSKINNOW 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Kain Marson & Prismari** /u/Rhaegar1994 
+**Kain Marson & Prismari** (Storm & Heroes) /u/Rhaegar1994 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Lyva** /u/smcadam 
+**Lyva** (Metal & Greed) /u/smcadam 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Mair** /u/AndrewJamesDrake 
+**Mair** (Life & War) /u/AndrewJamesDrake 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Malaphet** /u/CruelObsidian 
+**Malaphet** (Stars & Minds) /u/CruelObsidian 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Oryllia** /u/DragoneyeCreations 
+**Oryllia** (Hexes & Contracts) /u/DragoneyeCreations 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Rictus** /u/Horatius-Cocles 
+**Rictus** (Law & Hunt) /u/Horatius-Cocles 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Sarah** /u/WritingInfinity 
+**Sarah** (Darkness & Protection) /u/WritingInfinity 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Shilo** /u/AAAGamer8663 
+**Shilo** (Agriculture & Competition) /u/AAAGamer8663 
 > Acts: 30 Gain: +0 Draw: -0
 
-**The Sorcerer** /u/Gwydion-Drys 
+**The Sorcerer** (Magic & Death) /u/Gwydion-Drys 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Sunda** /u/StarOfTheSouth 
+**Sunda** (Animals & Wilds) /u/StarOfTheSouth 
 > Acts: 30 Gain: +0 Draw: -0
 
-**Yashqal** /u/hpllamacrft 
+**Yashqal** (Dance & Birds) /u/hpllamacrft 
 > Acts: 30 Gain: +0 Draw: -0
