@@ -1,0 +1,3 @@
+"Not my fault, it was my first time drifting through dimensions. I still kept almost everything else in my pocket dimension, must have just been your divinity changing." She smirked and missed his forehead, before stroking her own in case he left any coloured kiss marks there as they had as youths. "Thought Storms and Heroes sound exciting."
+
+Lyva glanced and gave a quick nod to Kain as she was hugged, feeling oddly soft with Prismari's new strength. "Thankyou for returning him to me, Kain. I'll take care of him now, you're free to go once you've got your strength back."

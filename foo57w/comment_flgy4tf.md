@@ -1,0 +1,3 @@
+"Indeed, just easy little mortals." Lyva popped a final jewel in her mouth like a sweet, and drifted blissfully, "But we need to make them good! Bare minimum effort is just laziness. How would you like some more gryn flapping around? Or some snakefolk? Perhaps we could mix things up, make feathered serpents... or I can remember how to build inorganic life, make them wholly metal?"    
+
+She continued to suggest ideas, chattering endlessly and  staying near him, seemingly just happy to have company again.

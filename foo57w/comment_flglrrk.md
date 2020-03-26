@@ -1,0 +1,1 @@
+Sarah turned her head. "Hello," she answered, "I am Sarah, and I am a goddess. Who are you?" She eyed him. He was also similar to her, she noted, although there were differences, like his skin color and the fact that he had talons for feet. Also, why his hair is made from strange little pieces with different colors?

@@ -1,0 +1,3 @@
+The vast yellow eye, responding slowly to the stimulus of the dragon, began to dilate as it adjusted to the movement before seeming to focus upon the divine being, growing several times larger, space seeming to warp around the eye as Malaphet's vast body began to kick into a higher level of functionality.
+
+Upon hearing the divine being speak, his form convulsed and produced a sound similar to "(incomprehensible gibberish)"  that seemed to erupt from every where and nowhere at the same time.

@@ -1,0 +1,1 @@
+"I never dance before," Sarah admitted, watching Yashqal with a mixture of curiosity and fascination. "But I will be glad to find out how to do so. It looks amazing."

@@ -1,0 +1,1 @@
+Sarah turned to face the speaker. "My name is Sarah. It's nice to meet you," she answered. Her voice sounded stronger and more mature, now that she has gotten used to the other gods. "May I participate in the creation of this world?"

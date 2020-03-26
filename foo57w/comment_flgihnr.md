@@ -1,0 +1,3 @@
+"Aaaargh," Lyva hissed as she felt sudden pressure on her neck, and let go, rubbing her throat as matching cracks appeared then healed over. 
+
+"That is how I tell if you're a deity. If you were still a demigod, I'd have killed you." She grinned, a sharklike smile of triangular steel teeth, "And brought you back of course. I'm not going to be less fierce now I'm more powerful. If you want another test, make the most incredible gemstone you can- you're earth after all!"

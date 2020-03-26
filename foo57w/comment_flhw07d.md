@@ -1,0 +1,1 @@
+Oryllia chuckled at Lyva's response. "I *could* make a forgery, if a bargain was made." Her ebony lips curled into a smile as she said, "Well, I also hold dominion over Hexes. Curses, Witchcraft, Incantations. The magic I weave."

@@ -1,0 +1,1 @@
+[Did you perhaps mean "who" not "how"? because I don't believe Kain would know who Sarah is.]

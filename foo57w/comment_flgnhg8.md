@@ -1,0 +1,1 @@
+Oryllia grinned in acknowledgement, thanking the primordial god for his acceptance of her offer.

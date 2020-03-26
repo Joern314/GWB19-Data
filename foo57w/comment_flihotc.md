@@ -1,0 +1,1 @@
+Malaphet rumbled "(unintelligible gibberish)" as it's guard seemed to drop slightly, though it's many eyes still remained focused on Kain

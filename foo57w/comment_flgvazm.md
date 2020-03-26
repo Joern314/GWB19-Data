@@ -1,0 +1,2 @@
+Lyva leaned close, giant head peering at him and the stump as her tongue flicked curiously.    
+"Didn't lose anything you'll miss." She noted, "But thankyou. I chose the skull because it was already large and round, and I don't want to create a giant round thing and accidentally create an egg. I'm too young to deal with children."

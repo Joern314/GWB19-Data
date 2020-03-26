@@ -1,0 +1,1 @@
+Oryllia gently pressed the flat of her hammer against Lyva’s forehead, and runic shapes fluttered around her like embers off of a flame. Then, she did the same with Malaphet, and after the deed was done, she said, “Now it is sealed.”

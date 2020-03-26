@@ -1,0 +1,3 @@
+As gon approached he would see an older god dressed in what appeared once to have been a well made a long white robes with intricate red and black embroidery that has faded to grey and stained with void like patches. But the most striking thing gon would notice this man had many similarities To Prismari yet older and the hair was wrong strawberry blond instead of rainbow like 
+
+“ oh dear me to be mistaken as a native.... perhaps it my look. No no I’m an kain marson... my original inhabitants is far far away. So where your asking I can assume you are a traveller as well. Excellent and your name would be.” Kain asked knowing fully well this was gon from his time spying on prismari but it be rude to tell him that

@@ -1,0 +1,1 @@
+Kain mad a small storm cloud and sat on it “I’m kain god of storms it’s nice to meet you Sunda are you new to this world or a godling ? “ kain asked politely with a smile

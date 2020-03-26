@@ -1,0 +1,1 @@
+"Kain's assumptions were rather speculative. There was no way this creature was an original inhabitant of the world, it likely was a monstrous intruder, powerful and mighty. Not picking a fight was the right decision, it was better to stay clear and hide", so the lizard spoke, twitching uneasily.

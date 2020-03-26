@@ -1,0 +1,3 @@
+Oryllia examined Gon up and down before saying, "A pleasure to meet you as well. I am a native of this world, along with Malaphet. Although, I do enjoy the influx of travelers from other worlds."
+
+She then let her hammer drift beside her as she continued speaking, "We may have arrangements at some point. And do not worry, Lyva has only been welcoming and kind to me, I couldn't imagine having any kind of slight against her. I'm actually surprised I was not involved in such a contract."

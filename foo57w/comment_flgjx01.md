@@ -1,0 +1,1 @@
+"(Incomprehensible Malaphet gibberish)" the entity rumbled, speaking a clear word for the first time since prismari had spoken to them.

@@ -1,0 +1,3 @@
+"Many gods do seem to lack family names, yes. Perhaps that is for the best. Don't want to be associated with others you don't agree with, right?" Gon laughed before yawning. "I don't seem vengeful, you say? Perhaps I simply have no reason to be at the moment?"
+
+"Prismari... prismari? Who was that again? That sounds familiar..." Gon pondered. "Oh right! That was Lyva's divine plaything, right? What's he doing here? Or - better question - why are you sharing divinity with him? And where is he, did you feed him to the lizard?"

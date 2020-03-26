@@ -1,0 +1,3 @@
+A brown skinned an muscular man with pointed ears, green and purple feathers for hair, and talons instead of feet seemed to be floating around somewhat listlessly until he noticed Sarah. When he did, he brushed some dust off his white robes and held up a hand in a wave.
+
+"G'bolla..." Gon started but then shook his head. "I mean, hello there! Are you, perhaps, a native? May I ask what kind of being you are?"

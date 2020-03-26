@@ -1,0 +1,3 @@
+"G'bolla, segli- Gah! I mean hello, strange one." A tall, brown skinned pointed-eared man, covered in bright white scars, with legs that ended in eagle claws, and feathers in place of hair, called out as he drifted close by in the void somewhat listlessly. He was dressed in glittering metal armor over a padded purple tunic. Worn on his left hip was a blade with a golden hilt and cross-guard.
+
+"May I ask what manner of being you are? Are you perhaps a native to this realm?" Gon asked with a smile as he raised one eyebrow at the moving mass of limbs.

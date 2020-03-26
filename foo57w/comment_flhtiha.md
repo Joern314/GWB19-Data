@@ -1,0 +1,3 @@
+"I don't think I have any reason to run from anything... not that I can recall anyways. My... family and I parted on mostly good terms. I was allowed to leave, at least." Gon sighed, hoping that they were not *somehow* the cause of this. 
+
+"You grew up, like mortals do? How... interesting. I've always looked this way, as far as I can remember. But if your mother... mothers... could find you then it must somehow be possible. Hrrm." Gon smiled at the implications of the information and glanced at the unfamiliar rune on the back of his left hand.

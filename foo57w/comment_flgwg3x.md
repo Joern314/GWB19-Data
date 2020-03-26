@@ -1,0 +1,1 @@
+"(Incomprehensible gibberish)" rumbled in response, a tendril reaching out to the goddess apparently to tap her lightly, from the main bulk of the entity and down the tendril a single tiny star-like eye rolled through the tendril and deposited itself on the Goddesses shoulder, remaining there as the tendril began to withdraw

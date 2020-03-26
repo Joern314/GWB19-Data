@@ -1,0 +1,3 @@
+"No, I'm here and I'm immortal so I can't be dead." Lyva mumbled into his chest, before leaning away just enough to meet his eyes and kiss him, "So you're not dead either. We are in my universe- not my hoard, though I might just stow you away so I never lose you again. It was so boring without anyone!"     
+
+She yawned and leaned her head on his shoulder fondly, tail continuing to constrict little by little, "And yes, I am Goddess of Metal here. I cooled off from my ascension while travelling, but my hoard's still half melted. Are you still vengeance? I'm not feeling your pain?"

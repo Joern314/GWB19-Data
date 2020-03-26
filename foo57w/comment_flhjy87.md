@@ -1,0 +1,1 @@
+"Blood of the people, yet you take it from them? What power do you wield, that you think can challenge me?" her voice was calm and cold like frozen water. behind her, the mortals which she was defending didn't dare to move for fear of drawing attention.

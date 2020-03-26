@@ -1,0 +1,1 @@
+As she was dragged away by Lyva, Oryllia said, "You may *see* it." She then plopped the hammer into her hands. The violet flames that enveloped the hammer before faded away to reveal an onyx black hammer. Lining its head and handle were the same runes that floated around her when they solidified their contract.

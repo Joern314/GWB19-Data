@@ -1,0 +1,1 @@
+Sarah didn't pay attention to the tentacle until it started moving toward her. She waited, but it didn't seem to wish to touch her. Then it started rumbling. Sarah nearly jumped. She didn't understand what this thing wanted from her, and she wasn't about to be rude and leave the other gods so abruptly.

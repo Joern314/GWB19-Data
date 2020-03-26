@@ -1,0 +1,3 @@
+“It depends on the fate one means.”kain said laughing to himself “but in all honesty I’m a believer that fate can interact with even us divine form time to time... I hope you find purpose in your.” Kain said with a sad smile. Maybe one day he could help gon 
+
+“As for Prismari let just say it was a happy accident, that one has potential... as do you and lyva... you three could put some of us old gods to shame.” He said with a grin of encouragement

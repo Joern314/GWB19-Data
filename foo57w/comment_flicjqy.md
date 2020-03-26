@@ -1,0 +1,1 @@
+“ understandable reaction after getting stabbed in the eye , I’m not here to hurt you just wanted to let you know not all of us are like that thing... I suppose your rather mad ?” Kain asked with a bow

@@ -1,0 +1,1 @@
+The tentacle merely observed for a time, rumbling random sounds occasionally until eventually it withdrew back the way it came, quickly becoming difficult to tell apart from the cluster of stars that lay into that direction unless Sarah chose to follow the tentacle.
