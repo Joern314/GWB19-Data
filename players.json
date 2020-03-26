@@ -157,6 +157,17 @@
     "acts": 30,
     "draw": 0,
     "gain": 0,
+    "name": "Thool",
+    "player": "/u/downsmi1",
+    "spheres": [
+      "Seasons",
+      "Trees"
+    ]
+  },
+  {
+    "acts": 30,
+    "draw": 0,
+    "gain": 0,
     "name": "Yashqal",
     "player": "/u/hpllamacrft",
     "spheres": [

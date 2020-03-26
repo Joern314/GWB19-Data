@@ -40,5 +40,8 @@
 **Sunda** (Animals & Wilds) /u/StarOfTheSouth 
 > Acts: 30 Gain: +0 Draw: -0
 
+**Thool** (Seasons & Trees) /u/downsmi1 
+> Acts: 30 Gain: +0 Draw: -0
+
 **Yashqal** (Dance & Mimicry) /u/hpllamacrft 
 > Acts: 30 Gain: +0 Draw: -0
