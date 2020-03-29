@@ -1,1 +1,0 @@
-\[ u/Horatius-Cocles u/CruelObsidian the first of the Hexes has been unleashed\]

@@ -1,1 +1,0 @@
-"Don't think so?" Gon replied hesitantly with one eyebrow up. "Oh, I haven't introduced myself yet! I am Gon Gryn of Earth and Vengeance. I would ask your name, but I suspect it would be something like 'ghrckogbklfs'. Oh well. Do you know what revenge is?"

@@ -1,3 +1,0 @@
-Kain relaxed and began leaning as if against a wall “like trust me I get it big guy, your big it’s hard to trust people.... but you don’t have to consider us all like him some of us are good people... at least most of the ones I met are. “ kain said hopeful but really he was just entertaining himself he could barely understand the creature much less hold a conversation with it 
-
-“You know I think you might be good to talk to... not like anyone really understands you.” Kain said laughing

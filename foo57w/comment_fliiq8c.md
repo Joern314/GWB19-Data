@@ -1,1 +1,0 @@
-"I am Sunda." He declared, his chest puffing out in pride at the sound of his name. "And who are you?"

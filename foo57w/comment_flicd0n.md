@@ -1,3 +1,0 @@
-"YES!" Lyva exclaimed and hugged her abruptly, a very clanking embrace between two metal goddesses, before darting back, "Do you want to see my collection? I'm going to have to invest a lot, so it will be a while before it's this expansive, and maybe if you see something you want, you can remember it for sometime we make a deal."    
-
-Behind her, her tail coiled to form a loop, wherein a portal opened to an insane looking city piled high with.... anything really. Rocks and grass and trees mingled with skeletons, weapons and armour, piles of mud and gems, and the meteorite joined them as Lyva threw it into what appeared to be a pocket dimension, part of her essence.

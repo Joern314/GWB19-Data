@@ -1,1 +1,0 @@
-"No divine spark could be found. But maybe this was a trap, and a trap wouldn't be so easily revealed. Or maybe it was a lure, and the skull would eat him if he got nearer", a voice whispered directly into Kain's ears.

@@ -1,3 +1,0 @@
-Malaphet could feel the arrival of the new gods, and it caused him to begin to stir from slumber, his nightmarish dreams beginning to fade to a almost docile half-dreaming state. His many eyes that had been static and unresponsive to stimulus began to move about as his form roiled in the otherwise empty sky.
-
-From within his body a colossal skull was ejected, a remnant of his last meal that he had not had time to digest before he fell into his coma. Perhaps he would eat that some day, but for now his body did not have the time or need to finish his meal.

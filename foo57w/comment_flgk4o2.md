@@ -1,1 +1,0 @@
-Prismari spring up and jumped for joy then clapped “oh you don’t need to practice that one ! So it’s hello and hmmm maybe the phrase my name is fallowed by your name .” Prismari said with a sense of accomplishment that the being said a word

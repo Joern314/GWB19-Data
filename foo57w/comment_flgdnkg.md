@@ -1,3 +1,0 @@
-"Pardon?" Lyva wondered, cracks and seams spreading through her draconic form as she lengthened and grew to maintain pace with the star-eye. She wondered over a few dozen languages she could remember learning, and several dozen more she couldn't remember learning, scripts of stars and curses and dark magic she'd picked up somehow. Was it like Phygtonish? It seemed close enough.      
-
-"Anyway, you're not that weird. My mum was a black hole and my dad was a lich. I can show you something cool if you want, so don't try to eat me." She replied in godspeech, perfectly understandable to anyone, assuming she was translating its weird tongue correctly.

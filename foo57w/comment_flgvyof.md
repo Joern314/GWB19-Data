@@ -1,1 +1,0 @@
-The great eyes blinked twice as the entities body squirmed. "(Incomprehensible gibberish)" It rumbled, a tendril briefly flicking to point at the man

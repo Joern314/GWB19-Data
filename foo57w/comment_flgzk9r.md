@@ -1,1 +1,0 @@
-"(Incomprehensible) Malaphet (gibberish)" Malaphet vibrated as it emitted the noise. It's Eyes remained unblinking as it watched Gon

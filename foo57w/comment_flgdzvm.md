@@ -1,1 +1,0 @@
-"Hmm, I clearly am." Lyva considered, relaxing her grip a little as she realised she wasn't going to feel the same sensation back. She pursed her lips, held onto him with her legs and tails, before taking his head in her hands as he tilted it. Then with a sudden force of exertion, she twisted and pulled, trying to rip his head off to see if he survived.

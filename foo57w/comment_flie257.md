@@ -1,1 +1,0 @@
-Malaphet's defenses did not lessen, but it also did not lash out.  "Inintelligible gibberish)" it rumbled, it's eyes watching Kains movements

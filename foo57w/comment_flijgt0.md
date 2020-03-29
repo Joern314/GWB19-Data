@@ -1,3 +1,0 @@
-Sunda roared in pain at the twin strikes, falling back a bit. He twisted his form again, a single serpent becoming just one of many grasping tentacles as the chimera took the form of a massive cephalopod.
-
-With some difficulty Sunda managed to grab one of the half-dragons and toss it away. Having bought himself a few precious moments he continued his assault on the remaining half of Lyva, managing to knock it to the not-ground (actual ground not existing in this part of the world yet).

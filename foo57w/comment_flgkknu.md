@@ -1,1 +1,0 @@
-Sarah, as politely as she could, removed the burning goddess's hands. "It's nice to meet you," she said with a nod. "What do you mean by that, if may I ask? Surely there are other gods around?"

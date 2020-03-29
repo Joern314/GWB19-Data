@@ -1,1 +1,0 @@
-“I will aid you in shaping yourself, the divine power that courses in you. While we stand on different spheres, our source of strength is one in the same.”

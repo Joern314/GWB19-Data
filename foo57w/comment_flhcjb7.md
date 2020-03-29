@@ -1,3 +1,0 @@
-"Good weight, got some proper heft to it, could smash someone's skull, this is a wonderful piece! I really want it," Lyva muttered as she looked over it, a mouth opening in her hand that seemed to mutter and read the runes, thinking over the magic. "Hmmm, but you're the real treasure here."
-
-"I've gotten ahead of myself haven't I? Heh, I am Lyva Starheart, Goddess of Metal and Greed. I like *things*." She said by way of introduction, and handed the hammer back, fingers sneakily brushing the other's hand to feel the flames as she did so. "And you? You're not a smith god."

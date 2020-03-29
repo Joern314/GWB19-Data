@@ -1,1 +1,0 @@
-As the Goddesses left Malaphet watched rumbling slightly, many of it's eyes shifting off into the behemoths bulk, perhaps to look at other things, though an eye remained watching each one as they left.

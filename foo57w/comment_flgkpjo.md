@@ -1,1 +1,0 @@
-A new a and very strange deity had come into existence. Prismari the curious one he was asked kain to accompany him to meet the new god or goddess and so the began searching for any signs of her

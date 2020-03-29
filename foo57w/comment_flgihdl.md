@@ -1,3 +1,0 @@
-Prismari slowly looked lyva in the eyes as she said she was alone  “lyva.... that is so horrible you where alone... I wish I could of found you sooner.” He said then laughed a little as she began swimming  
-
-“ I bet I could still swim Circles around you even if I no longer rule the oceans  “ He said  as he began to attempt to do as she did. But his former talent in the water didn’t seem to transfer well when there wasn’t any to be seen or had and so he went floating in circles over and over. It was kain after all who allowed them to travel the void

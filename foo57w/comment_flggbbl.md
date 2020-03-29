@@ -1,3 +1,0 @@
-Kain sighting he didn’t want to call pris but this thing could be dangerous he wasn’t really sure. But before going on the offence he back up several feet and began speaking along with prepare a surprise if things went south 
-
-“Hello my name is kain What are you ! Some sort of god or something worse ? I don’t want to pick any fights especially with what could be the original inhabitants of this world .” Kain said he seemed slightly worried but was trying not to show

@@ -1,1 +1,0 @@
-"I am afraid that I do not understand what you mean." Sarah looked at her with slight confusion written over her face.

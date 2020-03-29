@@ -1,3 +1,0 @@
-In an almost dog-like display, Lyva instinctively darted to bite at the thrown arm. Its detonation caught her in the face as thunderstorms exploded outwards with clouds and wind, and the drake god was abruptly thrown roaring across the molten surface.     
-
-"*How did mother manage being so long...*" She muttered to herself in embarassment as she coiled and settled once more, straightening the long draconian body as a forked tongue tasted the air. "**Ahem.** Thankyou Kain, this air tastes better to me, it will help mortals live better as well when they are created."

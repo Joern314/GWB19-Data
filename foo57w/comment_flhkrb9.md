@@ -1,1 +1,0 @@
-"I am the goddess of protection and darkness," Sarah said simply. "When someone needs protection, I will aid them. When the light upon the world becomes too harsh and too much, I will bring darkness to the world."

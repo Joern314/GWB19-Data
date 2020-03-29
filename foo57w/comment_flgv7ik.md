@@ -1,3 +1,0 @@
-"Gah!" Came a shout from the surface of the skull where Gon had decided to take a leisurely nap as Lyva did her thing. The sudden storms and rain woke him up. The god shook off rain off his feathers as he swam up to greet whoever had spawned such things. Silvery armor covered his dark skin and white scars seemed to glisten from the moisture.
-
-"G'bolla! Are you, perhaps, a native?" He asked the stranger with curious enthusiasm.

@@ -1,5 +1,0 @@
-The dragon breathed out, a long low sigh that hissed and rattled, and sent sparks of frustration and embarrassment flaring around her maw and cracks down her length. Greed breaking off and becoming its own animating self aware being? It felt far far too similar to how she had been born.
-
-But this wasn't her child! It was... lionish and hairy and back to front! And she was no less greedy than ever. She wavered, fuming and scared and writhing, circling it indecisively.     
-
-"If you were part of me, then you know I don't really do gifts. I share things with my other things. Or I invest. Or I trade." She hissed, forcing herself to stay calm. "Which will it be? Will you give me something for my scale? Will you return back power to me for what power spawned you? Or shall you be my friend, share things with me?"

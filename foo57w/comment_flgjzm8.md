@@ -1,1 +1,0 @@
-Kain and Prismari sensed the awaking or maybe it was a brith of one the new inhabitants of the world. And so being the gracious god duo they where decided to seek out the new arrival to say hello and introduce them selves
