@@ -1,5 +1,0 @@
-The second continent was coming along nicely in Gon's opinion. He wanted it to be ready for mortals. Thinking on the situation, he flipped lazily through the black book that he kept on the various deities he had met and heard of. Sunda had assisted him already in making the continent, Prismari had also helped, and Thool had promised to seed the barren lands with trees. Who else would be good to have invested in the continent and his mortals?
-
-If his mortals were meant to live underground, surrounded by darkness, Sarah certainly seemed like a good deity to contact. If they were going to farm, it would be wise to seek out Shilo as well. Collecting up a stone tablet with a rough idea for his mortals scratched in it, he set out from the glittering temple-caves of Nkan'gbamo to seek out the deities.
-
-\[ [/u/AAAGamer8663](https://www.reddit.com/u/AAAGamer8663/) ,  [/u/WritingInfinity](https://www.reddit.com/u/WritingInfinity/) \]

@@ -1,1 +1,0 @@
-"Vermin?" Lyva wondered, "What vermin? Come on grandma, just help me find the vermin, and I'll make a nice big not-egg for you!"

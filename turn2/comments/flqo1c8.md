@@ -1,3 +1,0 @@
-"What if they could be like mortals? Or mortals, like trees? Anything can be like anything in this world if they show fidelity. Right now there are freedmen cowering in the forest. They and the trees can show fidelity to eachother."
-
-Yashqal grasped the old god's shoulders in his talons and flew him to a forest at the edge of the Ras'shalas Empire. From their hidden spot they observed a miserable tribe of escapees.

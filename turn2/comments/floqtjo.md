@@ -1,3 +1,0 @@
-"Sounds boring." Lyva sighed eventually, biting down the tiny wolf leg. Then she flew over the serpent, close to the sun and coiled herself comfortably there, and started to chat. She told the serpent the story of her mother Celastra, partly seeking to alleviate a few hours of boredom, and partly just because she wanted to talk about her family. She told her how her mother had laid two eggs like moons, creating two younger siblings she had watched grow bit by bit until she left.    
-
-Once she finished, Lyva yawned and wondered, "Have you laid eggs before? Perhaps I am your granddaughter, not your cousin."

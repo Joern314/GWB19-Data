@@ -1,1 +1,0 @@
-[\-15 metaphysic: Fidelity](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flhz5pr?utm_source=share&utm_medium=web2x) (from turn 1)

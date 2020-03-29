@@ -1,1 +1,0 @@
-"You attack him and I will shield you and help the people escape?" she offered back with a shout, more then willing to work together if it will defend the people. She didn't see him, but she could feel his power.

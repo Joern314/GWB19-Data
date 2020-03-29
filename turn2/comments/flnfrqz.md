@@ -1,3 +1,0 @@
-"I'm not quite arrow themed. But I am very good at taking things, maybe I drained its magic already," Lyva mused as she twirled an arrow in her fingers, nodded and marched off, leaving the bow behind.     
-
-When she returned an hour later, she brought a boar with the arrow stabbed into its eye, the creature heavily bruised a bludgeoned, and set it beside Rictus, returned his arrow, and looked at him eagerly. "So which shall you do, and which shall I use?"

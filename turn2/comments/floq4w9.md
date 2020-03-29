@@ -1,1 +1,0 @@
-Lyva was surprised to find the shattered mountainous landscape so well developed, and the glowing bluish fluid fascinated her too. She collected some curiously, sheathed her sword, and decided to try and swim down, or rather simply fall as the metal goddess wasn't buoyant in the slightest.

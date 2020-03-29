@@ -1,5 +1,0 @@
-Lyva slammed her tail against the earth as Sarah spoke, suddenly propelling herself forwards to slam into the other and hug her tightly. It was a hard impact, Lyva weighed far more than her short stature suggested being metallic, but she figured a protection goddess could handle her. 
-
-"Yes! You don't know how glad I am to have Darkness on my side again, Sarah. I'm delighted to have you as *my* friend and *my* ally!" She exclaimed exuberantly, then leaned back and took Sarah's hands, or more precisely manacled wrists, in her hard hands, "You're going to be a marvellous goddess, I'm sure! You're already coming up with schemes! And.. *just remember, as mortals grow and change, so can we. Don't fear changing your beliefs as you learn and grow."*      
-
-She whispered the last as she leaned close, seemingly fascinated by the manacles and garb and practically hyperactive with delight.

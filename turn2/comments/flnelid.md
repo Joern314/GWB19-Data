@@ -1,1 +1,0 @@
-"If this lizard really was paranoia, then surely acquiring it would mean disaster! Lyva was moving her hand to toss it away again. Everyone knew how dangerous paranoia was once it got hold of you. The shamans would start lying, and prescribing weird plants. And even friends would turn into enemies!", the lizard said, trying to wriggle himself free.

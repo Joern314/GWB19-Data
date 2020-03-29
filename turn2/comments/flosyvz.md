@@ -1,1 +1,0 @@
-"I just mimic the movements at the core of all things. I can't claim any of this beauty, I'm just reflecting the beauty of creation. But trees, are a very interesting subject. So strong and ancient. I wonder how they wold dance..."

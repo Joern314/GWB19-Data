@@ -1,1 +1,0 @@
-Following the traces of the lizard, Kain arrived at Lyva's doorstep. [you can talk to her about both I suppose. Alternatively, you immediately learn that the Lizard died as a hero, trying to trick Lyva into Paranoia. Whatever you like better]

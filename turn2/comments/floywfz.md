@@ -1,1 +1,0 @@
-"Which not-me? How many limbs? How big? I asked for help. Then I will make a fake egg. Not a real egg. A fake egg." Lyva snarled back, "Be more specific, or else no fake egg."

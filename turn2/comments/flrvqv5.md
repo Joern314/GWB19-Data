@@ -1,3 +1,0 @@
-Prismari smile faded “that’s a very strange way to think mr sorcerer, if you care about your people why not the other mortals too? Aren’t all mortals the same on the inside with souls ! “ the young god didn’t quite understand 
-
-Kain on the other hand seemed very interested in this god “ that is a understandable veiw point. Protecting one own is a good thing... what your plane like ? “ kain suddenly asked

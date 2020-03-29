@@ -1,2 +1,0 @@
-[Just checking, do you do this for all? effectively ending the concept of battle because who would go to battle if they got a 100% chance of dying?  
-or do you do it just for those that pray the most? or just the most brutal battles that gives the most prayers?]

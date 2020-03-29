@@ -1,3 +1,0 @@
-"Why not both? After a fashion. I am happy for you to build a place for your followers in the Rift. I would advise to keep it out of the Endless Woods though. And feel free to add your horns to those Apokryph who wish to emigrate to the material plane. The only caveat I will give you in this is to stay out of the library in the Sleeping City. It is the library of my erstwhile patron and the one place I will not tolerate intrusion into!"
-
-The Sorcerer said.

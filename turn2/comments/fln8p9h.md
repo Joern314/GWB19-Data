@@ -1,2 +1,0 @@
-"He's free now, my trade is done, and it doesn't matter. The other's can conspire, I can conspire better, I already have five loyal to me- hey you're not my voice!" Lyva blinked as she turned to see the small floating creature.              
-"Who are you? Are you lost?" She wondered, voice lighter as if she was addressing an infant.

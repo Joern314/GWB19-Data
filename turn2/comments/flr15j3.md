@@ -1,4 +1,0 @@
-"It is quite irritating." Lyva agreed, finishing her goblet and storing her books and things away. Then she dropped her voice, out of hearing of the mortals, and shifted to sit beside Sarah.    
-"I could think of three options. You can always try to completely destroy, annihilate, unmake something, but it's very tiring, especially when mortals are still so scarce. Second, Oryllia may be able to remove it somehow, she did make it after all. Third, and this is just theorising, but I've heard stories of curses being broken by certain actions." She smirked playfully, "Maybe you need to find true loves kiss or something. I'm surprised she didn't say anything. Oh well."        
-
-"I believe I've shared more than enough knowledge to be due some recompense, don't you?" She asked at a more conversational level, "I want to know what you want for this world? And would it be a problem if I owned everything?"

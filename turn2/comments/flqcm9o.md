@@ -1,3 +1,0 @@
-The Minor God screamed in pain, as his head collided with the metal. They struggled, yet the Sponge-Man did not reveal anything else, however much torture was inflicted on him. Some times he tried to tell something, but it were always lies, easy to see through. Almost as if he desperately tried to figure out which answer would satisfy Azrakal.
-
-By the end of it, Sponge-Man had accused about two dozen different gods and minor gods to be the ones behind this ploy.

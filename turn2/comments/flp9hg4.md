@@ -1,3 +1,0 @@
-"Teasing you? Me?" Lyva echoed with exaggerated innocence, horns linking into a halo. "I don't know what you mean, Saph? This is the only way to stop my precious gems being stolen when I swim. What other reason could I have?"   
-
-She giggled at the touch, surprisingly ticklish for someone so tough, and flicked her tail, stirring silt up, "Speaking of, would you happen to be stealing my prayers, wet bandit?"

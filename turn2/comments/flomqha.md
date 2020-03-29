@@ -1,1 +1,0 @@
-As Thool begins exploring this new world, they stumble onto a creature like never before. Before them was a green bird with dozens of different limbs, moving about and swaying entrancingly. "Hello there. We are Thool, guardian of the trees and bringer of the seasons. Who are you?" /u/hpllamacrft

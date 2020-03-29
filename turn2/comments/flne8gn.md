@@ -1,1 +1,0 @@
-"Don't be scared, I can protect you in my hoard if you're scared of everything else. What are you? Narration? Paranoia?" Lyva wondered, holding it close as she examined the lizard in godsight, playfully turning her metal body to verdigris in spreading stains as if she had been poisoned.

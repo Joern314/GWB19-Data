@@ -1,1 +1,0 @@
-The Sphere of War appeared to be... deep within the Well of Life. *Beyond* the Source.

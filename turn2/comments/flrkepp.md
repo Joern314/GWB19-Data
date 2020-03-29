@@ -1,3 +1,0 @@
-Sarah expected many things.
-She didn't expect this.
-It took a second to adjust to Lyva's weight, but she managed and hugged her back. she smile. It was a good feeling, to make a new friend. "Thank you. I am very glad to have you as a friend and an ally as well, Lyva, and I will remember this advice." she then watched, amused, as the goddess was seemingly trapped inside her own fascination. "Sorry, I know much you love to own things and you're the goddess of metal and all, but you can't own my manacles." she said in a joking tone, although she was a little curious. The bindings, she could understand, but why the attention to her dress?
