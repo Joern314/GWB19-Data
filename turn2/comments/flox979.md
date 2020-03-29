@@ -1,0 +1,5 @@
+"Darkness, hm?" Lyva repeated gently, eyes roaming over her. "That explains some things. Welcome to my universe."    
+
+She grinned and bowed elaborately, taking Sarah's hand to kiss her bracelet of all things, then abruptly sat down and removed her breastplate. Beneath, her sternum was somewhat platelike with a hole in the centre, and she stuck a finger into the small hole, twisted, then pulled open a hatch that was apparently part of her body. It was wide enough for Lyva to reach inside, and Sarah could see a strange golden city beyond, then Lyva removed a bottle and poured wine out into two golden goblets, locking her hatch once more.    
+
+"Ask whatever you want, I've some questions that can wait till the end," The metal woman grinned, and Sarah again got the impression that she was showing off because of the mortal audience.

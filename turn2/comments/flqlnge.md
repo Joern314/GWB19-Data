@@ -1,0 +1,3 @@
+Lyva was skulking on a mountain top, collecting random stones but hugged him and weighed him down as he raved.    
+"Hush. You did the right thing with Azrakel. We're gods." She said simply, "You don't need redeemed, my love. Only Azrakel would claim you do, and he's a liar."     
+"Now, is this grandma going on about Fake Eggs? I made a deal with her, and she failed, so I'm not fulfilling my end of the deal either. That would be.... *charity*." She grimaced as if it was a curse word. "Besides, I need to save my power."

@@ -1,0 +1,3 @@
+**"Yes. Egg is egg. Big egg or bigger egg. Both egg."** The snake explained in the same tone she always spoke. **"Even bigger egg also egg. But not like this Fake-Egg."** She pointed her head at the sun. **"This Fake-Egg just wrong. Wouldn't even fool Not-Me."**
+
+She turned back to Prismari. **"Protect baby. I not care. Baby is Not-Me. To lay egg. Only safe place. I need. Hide between other eggs. Or let danger starve. Either okay.  Then I leave. If you protect. That fine. I not care."**

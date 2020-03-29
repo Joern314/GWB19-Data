@@ -1,0 +1,1 @@
+The Sorcerer nodded. Grabbed a book from a nearby shelf and read a few words from it. A bolt of brilliant lightning struck the little god of exoterics and started to dissolve him. Using the godlings essence to fuel itself and thereby rendering the godling non-existent.

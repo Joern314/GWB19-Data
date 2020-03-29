@@ -1,0 +1,5 @@
+The Sorcerer went out and began systematically killing the hawks sniping them with his magic. He would then gather up their essences. He did the same to the large mouthed godling any other minor god stealing from him. Keeping their divine essences locked in Oneiros. It was an afternoons work for the Sorcerer, as he could be in multiple places at once. 
+
+Out of the essences of the hawks he sculpted eagles. A veritable flock of birds of prey. For good measure he also had killed the pidgeons and remade them to collect power and bring it to him.
+
+Last but not least he resculpted the minor god with the large mouth to be a minor god of exoteric. Exotericism concerned itself with the understanding of complex topics and systems and trying to represent them in a simplified form. He set the godling to investigate the structures of reality and especially bade him to find out what happened to the divine power seeping into the background of reality.

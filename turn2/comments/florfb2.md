@@ -1,0 +1,3 @@
+"Good night, there you are!" Lyva stomped bombastically through the mortals, her armour clanking against her steel skin, golden rings adorned her horns and tail, "I was busy last we met. Thankyou for not interfering, that was a grisly transaction, but I'm free now."
+
+Noticing the nearby mortals, Lyva raised her voice slightly, letting them know her too, "I am Lyva Starheart, Goddess of Greed, Desire and Want, and Patron of Metal. Unbreakable, Undying, and Unquenchable! What is your name, Protector?"

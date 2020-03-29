@@ -1,0 +1,1 @@
+[Ah, thank you. I understand now. To be honest, those shields were divine ones, not material ones, so I don't think that this rule even apply to them (?).]

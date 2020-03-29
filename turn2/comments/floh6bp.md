@@ -1,0 +1,5 @@
+"My old world was a grim place where the dead could not rest normally, and they turned to stone when they finally did gain rest. Still, mortals survived, but it was a cruel existence. The world was full of gods, far more than this one, but many passed on and were forgotten. The land itself was wonderfully variable however, from deserts to an arctic tundra... where my... sister took up residence." Gon frowned slightly, but then a smile returned.
+
+"I ended up here as a side-effect of becoming a full divine. In my last world I was only a half-divine being. I developed a ritual to attempt it and, well, when I woke up I was in this world. I will admit it was an unexpected arrival." Gon continued as he gazed up at the canopy of the trees, it reminded him of something.
+
+"I think it would be wonderful to have lush forests here, full of wild creatures... Say, I have created a continent that currently sits barren other than a few broken mountains, an inland sea, coastline of cliffs in the west and a nice coast line of white sand in the east, past the shattered mountains. If you wish, you can plant all the trees you want there."

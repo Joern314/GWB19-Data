@@ -1,0 +1,3 @@
+Gon was, of course, happy to oblige the Ras'Shalas as well. Vengeance was vengeance. It did not matter if it was righteous or not. If it wasn't the other side would demand vengeance for the injustice and he would be back for them all the same. It was a vicious cycle and Gon loved it.
+
+Those captured could pray to a god of freedom if they wanted freedom or protection if they needed that. Those were not his business. All he could offer them was equal or greater retribution; he was not there to save them. If they asked for equal retribution that he simply dragged off their captors to the enemy one by one if he had to. If they asked for greater he would kill their captors and be off.

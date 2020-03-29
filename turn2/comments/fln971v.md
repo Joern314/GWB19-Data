@@ -1,0 +1,5 @@
+"They shall not flee back to the Rift. Their reentry is contingent on them dieing. On top travel between the Rift and the mortal world is hardly easy. In fact it tends to mess with mortal minds and once those slated to live in this world as mortals leave the Rift, the Rift itself will be all but a distant memory. And alas their lives are recorded on their bodies."
+
+He indicated his runic markings.
+
+"These marks can be found on the body of every Apokryph. If you know how you can read them. It tells of their creation, their lives and in the end their deaths. If you help me in my endeavor your role in this will be recorded on their very skin. But I am not unreasonable and neither are your requests. So allow me to ask what it is that you hope to find in the Rift and what alteration to the Apokryph's physical appearance you had in mind, before I make up my mind?"

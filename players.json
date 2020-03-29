@@ -1,8 +1,8 @@
 [
   {
-    "acts": 17,
-    "draw": 0,
-    "gain": 0,
+    "acts": 19,
+    "draw": -1,
+    "gain": 2,
     "name": "Azrakal",
     "player": "/u/Plintstorm",
     "spheres": [
@@ -12,8 +12,8 @@
   },
   {
     "acts": 30,
-    "draw": 0,
-    "gain": 0,
+    "draw": -1,
+    "gain": 2,
     "name": "Dawri",
     "player": "/u/gorok1089",
     "spheres": [
@@ -22,9 +22,9 @@
     ]
   },
   {
-    "acts": 22,
-    "draw": 0,
-    "gain": 0,
+    "acts": 24,
+    "draw": -1,
+    "gain": 2,
     "name": "Gon Gryn",
     "player": "/u/WHOSGOTYOURSKINNOW",
     "spheres": [
@@ -33,9 +33,9 @@
     ]
   },
   {
-    "acts": 8,
-    "draw": 0,
-    "gain": 0,
+    "acts": 10,
+    "draw": -1,
+    "gain": 2,
     "name": "Kain Marson & Prismari",
     "player": "/u/Rhaegar1994",
     "spheres": [
@@ -44,9 +44,20 @@
     ]
   },
   {
-    "acts": 27,
-    "draw": 0,
-    "gain": 0,
+    "acts": 9,
+    "draw": -1,
+    "gain": 2,
+    "name": "The Forgotten",
+    "player": "/u/Abacadaren",
+    "spheres": [
+      "Lost Things",
+      "Sentiments"
+    ]
+  },
+  {
+    "acts": 20,
+    "draw": -1,
+    "gain": 2,
     "name": "Lyva",
     "player": "/u/smcadam",
     "spheres": [
@@ -56,8 +67,8 @@
   },
   {
     "acts": 30,
-    "draw": 0,
-    "gain": 0,
+    "draw": -1,
+    "gain": 2,
     "name": "Mair",
     "player": "/u/AndrewJamesDrake",
     "spheres": [
@@ -67,8 +78,8 @@
   },
   {
     "acts": 18,
-    "draw": 0,
-    "gain": 0,
+    "draw": -1,
+    "gain": 2,
     "name": "Malaphet",
     "player": "/u/CruelObsidian",
     "spheres": [
@@ -77,9 +88,9 @@
     ]
   },
   {
-    "acts": 5,
-    "draw": 0,
-    "gain": 0,
+    "acts": 4,
+    "draw": -1,
+    "gain": 2,
     "name": "Oryllia",
     "player": "/u/DragoneyeCreations",
     "spheres": [
@@ -88,9 +99,9 @@
     ]
   },
   {
-    "acts": 19,
-    "draw": 0,
-    "gain": 0,
+    "acts": 3,
+    "draw": -1,
+    "gain": 2,
     "name": "Rictus",
     "player": "/u/Horatius-Cocles",
     "spheres": [
@@ -100,8 +111,8 @@
   },
   {
     "acts": 22,
-    "draw": 0,
-    "gain": 0,
+    "draw": -1,
+    "gain": 2,
     "name": "The Salty Knave",
     "player": "/u/Makator",
     "spheres": [
@@ -111,8 +122,8 @@
   },
   {
     "acts": 30,
-    "draw": 0,
-    "gain": 0,
+    "draw": -1,
+    "gain": 2,
     "name": "Sarah",
     "player": "/u/WritingInfinity",
     "spheres": [
@@ -122,8 +133,8 @@
   },
   {
     "acts": 30,
-    "draw": 0,
-    "gain": 0,
+    "draw": -1,
+    "gain": 2,
     "name": "Shilo",
     "player": "/u/AAAGamer8663",
     "spheres": [
@@ -132,9 +143,9 @@
     ]
   },
   {
-    "acts": 5,
-    "draw": 0,
-    "gain": 0,
+    "acts": 6,
+    "draw": -1,
+    "gain": 2,
     "name": "The Sorcerer",
     "player": "/u/Gwydion-Drys",
     "spheres": [
@@ -143,9 +154,9 @@
     ]
   },
   {
-    "acts": 20,
-    "draw": 0,
-    "gain": 0,
+    "acts": 19,
+    "draw": -1,
+    "gain": 2,
     "name": "Sunda",
     "player": "/u/StarOfTheSouth",
     "spheres": [
@@ -154,9 +165,9 @@
     ]
   },
   {
-    "acts": 27,
-    "draw": 0,
-    "gain": 0,
+    "acts": 24,
+    "draw": -1,
+    "gain": 2,
     "name": "Thool",
     "player": "/u/downsmi1",
     "spheres": [
@@ -165,9 +176,9 @@
     ]
   },
   {
-    "acts": 30,
-    "draw": 0,
-    "gain": 0,
+    "acts": 12,
+    "draw": -1,
+    "gain": 2,
     "name": "Yashqal",
     "player": "/u/hpllamacrft",
     "spheres": [

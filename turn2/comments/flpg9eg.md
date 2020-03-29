@@ -1,0 +1,1 @@
+"I will have to keep that in mind. I suppose if the mortals honor my trees, then they can use them as they need to. Thank you again new friend, I will have this forest made in no time!"

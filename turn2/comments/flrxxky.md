@@ -1,0 +1,3 @@
+Lyva went quiet, listening to him and appreciating his presence.    
+Eventually she loosened her grip and shifted, beginning to braid his multi coloured hair. "I can judge... when it's born. Perhaps it can be better than it's mother..... I suspect she could be my grandmother, but she is an idiot, she has no idea how many she's laid. Can you imagine?"     
+She grimaced and kissed him, "Thankyou. I'll try to organise my servants to protect and help your worship too. Has Kain left yet?"

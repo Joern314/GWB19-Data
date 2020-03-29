@@ -1,0 +1,3 @@
+"I'm always hungry. I'm Greed." Lyva muttered, licking her fingers clean of blood and ash, "Not that this helps. I'm an ascended, but I was a demigod so eating used to help. Now... I need worship but something is wrong."    
+
+"Actually, that is maybe more vital than hobbies and crafts, no offense intended. I can feel my mortals prayers and greed, but their worship isn't... empowering me at all. Am I doing something wrong? Do you feel strength coming from your worshippers?"

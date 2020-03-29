@@ -1,0 +1,5 @@
+"I was a mortal man once. In my homeworld a god tried to help mortals to ascend to godhood themselves and taught them how god experience morality and how a mortal mind can influence the world in a similar way. I was mortally wounded in a hunting accident and when I thought about the lessons the monks of this god had taught me I ascended. In my village I had been among the council of elders, who made the laws there. And I had been a hunter all my life. So the law and hunting were two things I understood very well and so I thought about these things like the monks had trained people to do during my ascension. And that is how I became god of the law and hunt."
+
+Rictus explained.
+
+"Gods or mortals! It doesn't matter! Everyone should strife to uphold the law. If you want to learn more about my laws I can lend you my Iron Codex and you can read some of them for yourself. But be warned study of the law isn't easy!"

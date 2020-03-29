@@ -1,0 +1,3 @@
+After she was done, and had gotten rid of the skin, Lyva decided to seek out this offer and approached Rictus in her horned and tailed humanoid form, her skin a reddish bronze and wearing a long feathered cloak.    
+
+"Greetings, Rictus, thankyou for your kind offer. I'm always happy to learn more, practising crafts is a very good practice for the divine. I am Lyva, Goddess of Greed and Metal, and I have claimed this universe, so I felt it right to take care of that blood god. Honestly I'm not sure if he was screaming out of pain or pleasure, he was very strange."

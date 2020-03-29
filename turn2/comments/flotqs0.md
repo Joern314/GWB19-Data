@@ -1,0 +1,3 @@
+"They're not that hard. I've never laid an egg. You seem to know what you're doing." Lyva wriggled slightly, enjoying the heat and the welcome, as simple as it was.     
+
+"I don't know how long until I starve. I don't want to starve, I'm not dangerous. But I'm hungry. Hungry for worship, for power from mortals. Something is wrong with their worship." She yawned widely, cavernous maw gleaming with gold, "I might be too worship-hungry for many more stories."
