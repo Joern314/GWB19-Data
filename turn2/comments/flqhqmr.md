@@ -1,0 +1,7 @@
+Again Lyva opened her hatch and reached inside, removing several large strange blocks, which were filled with thin white leaves covered in markings when she opened them.    
+
+"I know magic. Or I knew magic. My father was a very powerful mage. But it doesnt work the same in every world. These are texts on magics from my homeworld, my love's homeworld, my father's homeworld, but here... they're just useless theories." She sighed softly, looking over the books fondly, nostalgia clear in her tone.     
+
+"The Sorcerer is God of Magic in this world, and he's decreed that it is inside all living things, and will be removed only by death. A very predatory approach." Lyva cocked her head, "He never actually told me if we could make magic within his framework or not. But if you do, I'd make a single spell at a time. I've got plenty of time to think, mortals won't care about metal for decades still."
+
+"It would be strange though, to have a Protection spell that needs something killed in order to fuel it. There's always lovely Oryllia, she's creating some kind of not-magic called Hexes, she seems to know how to work powers that aren't in the Sorcerers domain- oh, that's the screaming, huh?" She blinked, putting two and two together.

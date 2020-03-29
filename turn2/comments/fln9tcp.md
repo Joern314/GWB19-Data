@@ -1,0 +1,1 @@
+"You know I'm a Goddess, right? I don't need to be there. I could already be there for all you know. You're cute," Lyva smirked, shifting her skin to be part iron, part gold, a similar pattern to the lizard, and petted it gently.

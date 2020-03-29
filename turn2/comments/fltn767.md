@@ -1,0 +1,1 @@
+[tho tbh a shark made by a Greed goddess would be called a "loan shark"]

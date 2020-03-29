@@ -1,0 +1,3 @@
+"A very literal feature," Lyva noted of the markings, a tiny note of distaste in her voice.    
+
+"For my suggestions- the Rift is Magic and Death. I would like to collect some of my loyal souls in the future, and create magic of my domains, and so the Rift could help me understand these aspects better. And... *it might feel homely*," She added the last quietly, drank deeply of her tea, and continued, "For Marks...my horns are quite distinctive, I feel they would be a suitable symbol of my work without interfering with much."

@@ -1,0 +1,9 @@
+[So different GMs run acts different ways. Jorn is running a crisis system where if you interact with major problems, you will be more worshipped, or feared, and gain more acts per turn. Also can gain some from prompts, there's no in-world explanation for that, it's just to encourage world building and fleshing out]     
+[Normally you'd have to pay to talk to mortals via Contact, Prophet, etc. However, things are weird now as A. Gods can talk to mortals freely, prove themselves, and just tell them to worship them, and B. We're not gaining Acts from worship.]    
+[That second aspect is a Crisis, it's a mystery, so presumably steps taken to fix whatever is wrong with worship will result in Gain.]     
+
+Lyva giggled at the younger deities earnest question and passed her the goblet, "What is important to understand, is that even though mortals are made of... well almost entirely the same stuff, they're all slightly different, and they all think they're majorly different. But they all want things."     
+
+She drank deep from her own goblet, then chuckled, "Apart from the ones that don't. But I care about the ones that want things, because I'm Greed, I'm Want. So I teach them how to get what they want, or how to get it more reliably. There's a lot of "might makes right" thinking with savages, so teaching them trade helps a lot. Metal... eh, they're not really ready to understand metal, but they like shiny things, so I try to be shiny when I'm talking to them."
+
+"You're not me, you're darkness, so it might be hard for you to be shiny, but your bracelets are a nice step in that direction. You're welcome. I guess teach them how to deal with Darkness, to fear it or use it, whichever you feel fits, and help teach them how to protect themselves. I like chants to help them remember things," She continued, seemingly eager to share as much knowledge as she could, tail lashing as she talked, though Lyva often backpedalled and contradicted herself.

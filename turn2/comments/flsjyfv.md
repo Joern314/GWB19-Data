@@ -1,0 +1,3 @@
+"I'm not touching it. Even after she's gone she'll probably pop back in to bite me if I touch it! It's not mine." She hissed resolutely. "It's not part of this universe. And neither is your leech. If you want any help evicting him, just ask."    
+
+Lyva seemed to soften at his touch, shifting to a soft gold that felt almost like flesh. "I didn't like having my divinity entangled with my mother's.  It worries me that yours is *shared* with a stranger."

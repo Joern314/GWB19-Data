@@ -1,0 +1,3 @@
+"She would help me discover what vermin are stealing our power, and I'd make her a fake... and she narrowed it down to Not Her. So she doesn't get it...." Lyva sighed and squeezed him, hard enough that she seemed to be trying to squish him out of his physical form. "I discovered it alone. We can make minor gods. Somehow, some of the minor gods are stealing worship away. But I made some to counteract that... they're servants."
+   
+"But the serpent wouldn't be a servant, it... it's not mine, I don't want one, I'm not a mother, I'm a merchant, I'm not a mother, I'm not generous, I can't be, I'm not..." She began to mutter repeatedly, almost in tears for some reason.

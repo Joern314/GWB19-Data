@@ -1,0 +1,5 @@
+"This is the library of the Outsider we are standing in. It holds all his knowledge up to the point he disappeared from the Illuminated Lands. The knowledge of weapons, plagues, machinery, gods, mortals and beings beyond even other gods' understanding is held here. The magical knowledge and multiversal secrets in this room have destroyed more than one reality and will probably do so in the future. I have kept this library and added myself to its stores. So say there was a magic to burn this reality to the ground, I would keep it under lock and key here. Maybe to be never used again. Or maybe to be used in a last stand. So yes I would want to know. Or at least as much as is safe to know without activating the magic. And having its specifics written down and stored to be read here without activation."
+
+The Sorcerer paused.
+
+"Beyond this I would like to know enough to allow me to make sure to further receive the power distilled from mortal prayer. As for your wish to cease existing, that can be arranged."

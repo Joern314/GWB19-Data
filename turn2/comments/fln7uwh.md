@@ -1,0 +1,1 @@
+"But what if Azrakel could free himself? What if this was just a trap, and the gods had walked right into it? What if... the others were conspiring against Lyva? Surely it was not a good idea to leave Azrakel behind like this", a small black-and-yellow lizard said, floating around Lyva, blinking innocently.

@@ -1,0 +1,5 @@
+It was inevitable, really. No sooner had wars and raids begun, that survivors dreamed of retribution, of vengeance. No one is sure who prayed for it first, but Gon heard them and turned up with a simple statement:
+
+"You have prayed for vengeance, and here I am. Know that I am Gon, God of Vengeance and that I shall ensure those who have killed those you cared for shall die as well."
+
+It slowly but surly got out of hand; whenever there was a raid, Gon appeared and killed at least as many of the raiders as they killed of others. When a battle was over, Gon inevitably showed up to even out the casualties. It mattered little to him whether they were humans, apokryphs, or whatever. He didn't care if they were part of the empire or just its victims; he did not know the gods that made them, and - as far as he knew - Lyva wasn't invested in either side. So it was a perfect opportunity to let out some frustration from his earlier dealings with the Minor gods and distract himself from his annoying dreams.

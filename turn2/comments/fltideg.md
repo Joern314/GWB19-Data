@@ -1,0 +1,1 @@
+"Naturally." Sarah smiled. She expected that. Really, she would've been the world's greatest fool if she didn't. "What do you want in return? I fear I don't have much to offer, but I am sure we can reach an agreement." as she said it, many possibilities of what the woman would ask for started to race through her mind, some possible for Sarah to agree to, some not.

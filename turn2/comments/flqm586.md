@@ -1,0 +1,2 @@
+Lyva welcomed and thanked her new servants eagerly, delighted to find herself building a new network and absolutely ecstatic to have her first drips of sustenance in centuries. She adorned them with robes from her hoard, and Igali with small rings on his horns, and urged them to continue their work.     
+She went alongside Yinquel this time to find the minor gods sabotaging the greater gods, and tried to trap several in her hoard to question them as to their purpose, their creation, and where the power was being pulled to.

@@ -1,0 +1,3 @@
+"You've never had to be patient have you? Hmm, have you ever even had to do any work in your life?" Lyva said softly, pitiably as she reached up and hugged the younger goddess. "When would you have? You've never been mortal, your favourite power let's you just steal from others to amuse yourself, and you've done nothing with the Sea except been born. You've never experienced any hardship before have you?"     
+
+"I worked hard investigating and chasing down dozens of minor gods, I just told you. And I still don't have all the answers. But it's worth working at to fix, my dear tempest. If you want something, you have to work for it, even we goddesses."

@@ -1,0 +1,1 @@
+"Probably a short sword is the most useful in my mind. And I could help you forge them, when I've got more power, but.. I don't do charity." Lyva explained quietly, holding the shield tight.

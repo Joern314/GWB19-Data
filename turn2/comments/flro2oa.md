@@ -1,0 +1,5 @@
+Lyva blinked and roused, golden freckles blushing slightly as she chuckled, "Don't be so against change, I just told you that, you don't need to wear things forever! I once knew a man who took such pride in his wealth he never wore the same clothes twice! Hm, I think I've got most of his wardrobe somewhere, it doesn't fit me..."    
+
+She grinned as if teasing and stood, uncoiling herself from the heavy embrace, walked around and seemed to note the manacles on Sarah's ankles too. Then she opened her chest hatch once more, removed a smooth stone, and handed it to her reverently.     
+
+"This is not a gift. This is on loan. I want it back when you're older." Lyva said firmly, "If you have any more questions for me, think of me and speak to this stone, and I'll hear you, alright? Or if you want any metal work done. Believe me, metal and protection go together wonderfully."

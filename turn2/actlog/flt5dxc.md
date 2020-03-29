@@ -1,0 +1,3 @@
+[Prompt, and told random mortals who I am](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flt5by6?utm_source=share&utm_medium=web2x)
+
+[\-1 to finish the ocean](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fltn59h?utm_source=share&utm_medium=web2x)

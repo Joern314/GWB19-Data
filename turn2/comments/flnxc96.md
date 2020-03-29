@@ -1,0 +1,1 @@
+[I am assuming not everyone prays or knows to pray to Gon. If they do, then damn, that was easy. Let's just say those who pray the most get it to keep it simple.]
