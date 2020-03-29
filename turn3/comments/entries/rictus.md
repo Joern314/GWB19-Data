@@ -1,0 +1,32 @@
+### Rictus[gods]
+
+Info: /u/Horatius-Cocles [Turn 0](/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fluvfl9/)
+
+**Spheres**: Law and Hunt
+
+**Description**: Rictus generally appears in human form. The form of the man he was born as. He is of a tall but lean build and is clothed in the leather garb of a hunter. He has shoulder long, brown hair with gray streaks. He wears his hair bound back behind his head in a braid. Rictus has blue-gray eyes and a thick, full beard. His beard has the same color as his hair. The right half of his face is scarred with a big claw mark.
+
+When he appears as the god of the hunt he often wears a green cloak. This hides his face in darkness under the cloaks hood, showing only the eyes of a predator, glowing in the dark of the hood. He also carries the full apparel of a hunter.
+
+When he appears as the god of law he appears in armor and wearing a heavy pelt coat, carrying an executioner's sword and a law book, seemingly made from iron.
+
+**Personality**: Rictus despite his ascension millennia ago still is mostly like the mortal man he once was. Rictus likes to look out for his people and see that they are provided for as he always has as one of the hunters of his hometown. On the other hand he is unmoving in punishing those that break the laws and that endanger the well-being of people at large.
+
+**Background**: Rictus grew up in a small town in the mountains. Later on he had learned the trade of a hunter.
+
+He lead the typical life of a human. He had a family. He was involved in occasional fights. He aged and slowed down, but gained in experience. He joined the elders of his hometown. Rictus learned to value the peace and sense of community, so everyone could work and live in relative prosperity. As far as was possible in a part of the world regularly plagued by raiders, vampires and ghouls. 
+
+One day a group of wandering monks called the Logothets had marched through his hometown. Rictus listened and learned from the Logothets about the nature of reality and divinity as taught by the god called the Outsider. Mortals were normally not privy to such information
+
+For Rictus all this discussion was too theoretical. It was a bunch of talk about the theoretical construct of the mind and the makeup of nature as a whole. Nothing that really helped him in doing his duty. Though he never really forgot what he he had heard.
+
+The priests had wandered on disappointed. Rictus however spent much of his time contemplating the words of the Logothets, when he was out alone at night. Or sitting and waiting for the best shot on one of his hunts.
+
+During a hunting accident where he was shot and left for dead by another hunter. He lay in the snow bleeding and feeling his live drift away. So he started praying for his family, that they were taken care of. To the gods so that he might find a good place in the afterlife. Ans so he started remembering the words of all the priests he had heard. In his hour of death he could feel the words of the Logothets from so long ago gain a new dimension. He felt something happening. A deep understanding of the world around filled him. He felt, that if he reached out he could touch things that normally were only abstracts to mortals.
+
+In his life he had been familiar with two things, hunting and the law. He reached out for the understanding of these things he knew so well. And so he ascended.
+
+He left his homeworld after an apocalyptic war against a god called the Shadow. And while the war was won and the Shadow vanquished the world became hostile to gods. And so he moved to a new world. Where he created humanity and built a world for mortals confronting another great evil alongside fellow divine beings called the Master of the Abyss.
+
+Wherever Rictus turned those bent on unjust destruction and domination seemed to abound. And with the world safe once more he decided to strike out and do what he did best, bring the law to protect people and hunt down those who broke it.
+
