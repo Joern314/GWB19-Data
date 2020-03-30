@@ -1,0 +1,1 @@
+[/u/writinginfinity , Azrakal is being a dick, protection sphere? See context]

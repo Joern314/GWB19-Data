@@ -1,0 +1,1 @@
+"I am sure." Sunda confirmed. "For the time being I am sure of myself and my abilities, and do not require assistance. Perhaps one day I shall request your guidance, but that day is not this day."

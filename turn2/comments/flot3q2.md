@@ -1,0 +1,3 @@
+"Though it is not mine to name alone, I have taken to calling it Reloik'lakzek, Land of the Broken Stones, because I made it by dropping a mountain range on it. It may be, however, that one day the mortals will call it something else. It lies far across the sea." Gon replied thoughtfully.
+
+"I intend on placing mortals in the mountains there when they are ready, and it would be wonderful to have many places for them to explore." He smiled and nodded as if agreeing with himself.

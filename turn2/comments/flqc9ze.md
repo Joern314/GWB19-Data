@@ -1,0 +1,1 @@
+"Iiik! The bucket! The bucket! I put it in the bucket, and then it gets removed. Please! That's all I know..." He started sobbing and whimpering.

@@ -1,0 +1,3 @@
+"Some part of me was once a part of you, so you know I am not returning the scale." He informed her. "I do not have anything at this time to trade for it, so you would have to wait for some time. And I am not sure your definition of friend is the same as my own."
+
+"You want me as a belonging, as something that you *own*. I do not see that happening." Here he paused for a moment, considering his words carefully. "So tell me, mother, what ever shall we do?"

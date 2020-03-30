@@ -1,0 +1,4 @@
+"No!! Please don't eat those!! The young girl hopped out of the nearby tree and quickly began gathering up the leaves, trying to pin them back on the trees. "My trees need these to eat!"   
+
+
+The temperature dropped significantly and the leaves began to dry and wither. Appearing before Lyva was now an old man covered in furs. While he looked wiry and emaciated, he also had a surprising resemblance to the young girl. Perhaps this was a relative? It was not important now. "I suppose we don't need them for now, feel free to take as many as you need, but when I appear and you can hear my song, please leave these on the trees". The old man approached the metallic woman. "I am Thool, patron of the trees and keeper of the seasons. Can I help you with something?"

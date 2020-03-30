@@ -1,0 +1,1 @@
+[ **Offers & Requests**: You don't know which god can help you make something that you need but don't want to create yourself? You need cooperators for some project but don't know whom? Just ask on the Discord, or here! ]

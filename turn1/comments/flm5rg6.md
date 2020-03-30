@@ -1,0 +1,1 @@
+[ it’s getting late here so I’ll write out a landscape tomorrow. But this post is a place holder so  -2 for the new continent]

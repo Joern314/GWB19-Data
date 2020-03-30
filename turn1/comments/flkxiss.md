@@ -1,0 +1,3 @@
+"There is much work to be done, for sure." Gon agreed readily. "It could be a much nicer place, that is for certain. The divine may craft it into a fine place one day despite it's... foundation."
+
+"Perhaps then it will deserve a new name, then. Do you fancy any sort of environment yourself?" Gon asked while cocking his head to one side as he watched the moving wings in particular, without realizing he was.

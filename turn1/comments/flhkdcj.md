@@ -1,0 +1,3 @@
+"Fate, huh?" Gon laughed before continuing with a wild smile. "Do you suppose gods are subject to fate? I certainly hope not. If... all that has happened to me is fate, then... how many do I have to ki-"
+
+Gon shook his head and returned to his normal smirk. "What was I saying? Oh, right, surely fate can't have a hold over divinities, right? It was sure nice of you to save Prismari from being lost."

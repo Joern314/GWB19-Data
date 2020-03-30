@@ -1,0 +1,1 @@
+“I am Oryllia,” she said as she circled Sarah. Then, Oryllia stopped to face the new goddess, pinching her cheeks and saying, “Aren’t you the cutest little goddess I’ve seen in a while?”

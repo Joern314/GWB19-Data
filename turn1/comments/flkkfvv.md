@@ -1,0 +1,3 @@
+The elder being was puzzled, it did not remember being injured and that was the only time it had ever leaked in such a way. But as it heard the voice it realized this was the manifestation, or formation of another divine in this plane.
+
+"(Incomprehensible gibberish)" it rumbled in response the the giggles and the voice it heard, one of it's greater eyes, a deep indigo coloured star, emerged from it's nebulous bulk and searched around for the origin of the voice.

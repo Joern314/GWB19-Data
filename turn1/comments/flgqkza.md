@@ -1,0 +1,1 @@
+"No? Then where are you from? Wait... that isn't a yes or no question... Uh, have you met any natives?" Gon asked curiously.

@@ -1,0 +1,1 @@
+ "(Incomprehensible gibberish)" Malaphet rumbled but did not approach any closer, though a couple more eyes did gather around to watch the serpent

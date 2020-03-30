@@ -1,0 +1,3 @@
+"**I'd like to see you try.**" Lyva growled back bitterly, momentarily flaring as she tried to match the others' size. Doing so split her form, seams opening to reveal her pocket dimension like portals across her form, and after a moment she calmed and slithered away, shrinking back down to her usual space faring size.     
+
+"**Not that I care. Don't interfere with my universe, and I won't interfere with your baby.**"

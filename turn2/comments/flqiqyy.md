@@ -1,0 +1,3 @@
+"Have you just tuned them out?" Lyva grimaced, and suddenly headbutted her, not hard but somehow a memory appeared in her mind- the scene from Lyva's perspective, them talking, and in the background, the night [was filled with horrible shrieks](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flhf0w8/?utm_source=reddit&utm_medium=usertext&utm_name=GodhoodWB&utm_content=t1_flhfmer).    
+
+"Anywhere it's dark, they scream. It really creeps the mortals out." The metallic goddess sat back, "I assumed you did something to earn her wrath. Is this not ringing any bells?"

@@ -1,0 +1,3 @@
+Kain tilted his head and raised an eyebrow as his eyes went golden and face went stone cold serious“ what a very interesting story you are a very brave god to have attempted such a thing with out assistance... but also a little foolish, lyva I’m sure would of help you even that bone headed Prismari would of! For your sake I hope there is no lasting consequences.” 
+
+His face then relaxed and he grinned “ a mercenary that’s interesting... I’m the opposite. I’m here to give Prismari advice... make some awesome storms.. and be as lazy as I can we’ll surviving . The young one is the star of the show between the two of us. I’m just here for a good laugh.” It was clear kain was giving half truths mixed with falsehood but what was what was hard to read

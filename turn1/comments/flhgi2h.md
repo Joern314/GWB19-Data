@@ -1,0 +1,1 @@
+From the stars lazily crept a tendril towards the newly formed deity. With stars for eyes the tendril watched the dancing god silently. Moving with the god  as they danced, perhaps attempting to keep it in the center of it's vision or perhaps dancing along.

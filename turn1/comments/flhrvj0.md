@@ -1,0 +1,1 @@
+As Gon swam away toward the Skull, it's many eyes drifted away, eager to look at other things, though, were Gon to look back, he might notice that one eye in particular followed him as he moved.

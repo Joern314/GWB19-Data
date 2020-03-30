@@ -1,0 +1,3 @@
+"Hmm, perhaps I shall go and watch. It will certainly be more entertaining than wandering around listlessly as I have been." He told her, turning in the general direction of the battle she mentioned.
+
+"Well then my lady, it appears this is where we must part ways, at least until I meet the part of you that defends from...Azrakal?" He asked, testing the name. "Although, if you've more to discuss I am sure the battle will hold for a time."

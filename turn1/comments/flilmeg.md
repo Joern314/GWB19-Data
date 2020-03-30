@@ -1,0 +1,1 @@
+As Kain flew away most of the eyes moved away to look at other things, though if Kain were to keep looking he would find that one eye continued to watch him as he departed, never failing to keep him at the center of it.

@@ -1,0 +1,1 @@
+"Then I'll probably be waiting. Unless you take too long to exist. I'm not known for my patience." Lyva looked away, curious to see if the ticklish massage would resume if she closed her eyes.

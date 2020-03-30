@@ -1,0 +1,1 @@
+"No, I don't." Sunda deadpanned, staring at his latest guest. An interesting guest he supposed, if only because they were bore yet a new form. It was marvellous, he thought, that each god he'd met so far was so unique.

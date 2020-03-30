@@ -1,0 +1,5 @@
+Rictus appearance changed. His hunting garb was replaced by armor, a cloak of fur and a heavy executioner's blade by his side. The other thing on Rictus' belt was a book with iron bindings.
+
+"This is the Codex of the Iron Law. In it all the laws and permutations thereof I accept are written. Some of them call for capital punishment. That means the death of the perpetrator. This sword is an executioner's blade, it is meant to decapitate or kill those that break these few integral laws. The mass murder of people is one of the laws that can carry the death penalty. However not without a fair trial and a judge to offer a verdict. That said Azrakal is a god. He can not be killed. So I will say this: It was neither completely wrong nor completely right to flay him. Like anyone he would have deserved a trial. But also like anyone he deserved the punishment. In my judgement he even deserved a greater punishment than what he got."
+
+Rictus said while looking around for a stick to make a fishing rod out of.

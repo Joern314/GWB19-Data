@@ -1,0 +1,3 @@
+"(Incomprehensible gibberish)" Rumbled the sun, stars and space in-between as the stars-like eyes focused upon the snake coiled around the sun, tendrils separating themselves to become distinguishable from Malaphet's hidden bulk. 
+
+The entity that seemed to be in every direction around the snake however, kept a respectable distance, though the heat from the sun did seem to increase slightly as it seemed to swivel and focus upon the snake.

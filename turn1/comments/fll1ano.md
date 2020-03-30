@@ -1,0 +1,3 @@
+"In a way, yes they are powers of divinity, possibly even beyond divinity. It is a primordial force from the beginning of creation, certainly beyond us, but who knows? It could be even beyond any god!"
+
+Oryllia brandished her hammer, blazing with fire. "I obtained these dregs, well, because I was born of it. I've been here for quite a time, but in a sort of dormant state. It was only until you all came that I was given shape and gained the drive to alight this forge."

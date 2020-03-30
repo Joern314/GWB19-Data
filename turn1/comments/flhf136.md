@@ -1,0 +1,3 @@
+"I wouldn't worry about it, you can meet others at your own pace... even if you don't meet them soon there will most certainly be time later, since you are a goddess after all... Or just let them come to you if you wish." Gon replied with a grin.
+
+"Ah, but if you ever do develop a desire for some revenge, of course, give me a shout. It is kinda my... business, shall we say, to help those who have been misused or crossed in some way, alright?"

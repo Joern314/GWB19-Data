@@ -1,0 +1,1 @@
+The snake hissed: **"Counting eggs. Will not visit worlds. Too many. Need to rest. Not-Me starve first then. Am hungry. But survival. You stupid. If search for food. Little food there. Vermin eats it. Wait until vermin full. Then gather food. Less risky. Less fights. With other snakes. If no stories. I no care. Stay away. Or I kill."**

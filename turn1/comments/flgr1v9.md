@@ -1,0 +1,3 @@
+Oryllia was clearly nerved by Lyva’s haughtiness, but maintained her composure as she spoke, “I am of the dregs of existence. What was cast aside by other divine powers in the past.”
+
+She raised her hammer towards Lyva in a gestural manner, continuing to speak, “Now, this contract you have made with venerable Malaphet will be sealed by my mark, will it not? In that case, I will see to it that both parties complete their end of the bargain, lest there be great opprobrium.”

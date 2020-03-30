@@ -1,0 +1,1 @@
+Hello! I am Thool, keeper of the seasons and protector of the trees. I appreciate the welcome. Being born out of the fluctuating cycle of change, I am looking to provide some structure and order to this, and this process is where I get my power. What do you plan to do?

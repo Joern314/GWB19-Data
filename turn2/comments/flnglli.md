@@ -1,0 +1,3 @@
+The minor good squeaked, but his words could not be made out clearly, and whatever lies he told about the dangerous poison in his blood, or the explosion of magic energy that his death would produce, they didn't stop Lyva (for she couldn't hear them).
+
+Instead the divine being simply ceased to be, and for the briefest moment Lyva felt a sliver of power touching her divine core, before it vanished abruptly.

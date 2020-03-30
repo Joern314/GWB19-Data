@@ -1,0 +1,1 @@
+Shilo rubbed his hand on his chin in thought. “Well then I suppose a series of many competitions will need to take place then, a game of games! And I don’t see why bets would be an issue, betting is a form of winning itself is it not?”

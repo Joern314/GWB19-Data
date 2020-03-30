@@ -1,0 +1,1 @@
+Lyva panicked, trying to hold it, use godsight and control her metal skin simultaneously, so quickly shoved the lizard in her mouth. She tried not to swallow, not to let it scamper off into her hoard, but just kept her mouth closed while trying to... god *taste* it? Was godtaste a thing she could do?

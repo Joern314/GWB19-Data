@@ -1,0 +1,1 @@
+"It's great to meet you both!" Thool bows back at Prismari. I hope we can become great friends. Storms you say? My trees will be needing watering I suppose. Any chance you could help them out?"

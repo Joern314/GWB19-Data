@@ -1,0 +1,1 @@
+"Excellent! Then I bid you farewell, but don't hesitate to call if you require something." Gon said with a wave as he made to swim off towards the skull.

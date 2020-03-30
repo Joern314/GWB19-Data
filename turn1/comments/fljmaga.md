@@ -1,0 +1,1 @@
+The snake hissed threateningly. **"Stay away. Or I kill."** Then she calmed down. **"Your world. This star. Your egg. They all weird. Such barren. Did you eat all eggs except one?"**

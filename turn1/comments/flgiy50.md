@@ -1,0 +1,1 @@
+"Are you sure you want to make bets with me? I will always take you on. After all, goddess is a longer and therefore better word than a mere god." Lyva laughed, tail wrapping around his ankle to drag him along. "Just think of where you want to be. All of your lessons about moving arms and legs and stuff were wrong, it's just focus and willpower."

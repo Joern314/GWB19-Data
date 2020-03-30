@@ -1,0 +1,3 @@
+"Wow, good job." Gon commented. Prismari was far more friendly than Gon had expected him to be, based on his experience in the old world. He wondered if it had something to do with the sphere of Heros.
+
+"I suppose something like that will need a proper name... Hrrm... if the planet is Ranosken, then... I will name this this 'Skaal'gbaldol, the Sky-holder'. I will make it known to the Nkarlen that this was made by the god of heros... perhaps I can simply tell them that he is the first Nkarlen hero. Thank you again, Prismari."

@@ -1,0 +1,3 @@
+"So they are not so much like magic, but more like enchantments; they do not briefly alter the fabric of reality by through certain actions, but are rather stable creations made from the remnants of creation? Does... that mean that in someways they tap into the very power of the divinity? How curious." Gon questioned energetically while looking all about. He paused and frowned for a moment when he caught sight of the ashes, but other than that he couldn't hide his absolute fascination with the subject. He turned back to Oryllia.
+
+"How did you obtain these remnants? I have not heard of or seen their like before."

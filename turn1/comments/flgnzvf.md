@@ -1,0 +1,1 @@
+Oryllia kept her eye on the duo that approached her. “Hello, venerable gods. I see you are not new. From another place. I welcome you to this corner of existence.”

@@ -1,0 +1,2 @@
+Lyva relaxed a little as she looked over it. Of course the stupid little chimera wasn't her child- she would *know* if she ended up with child, and probably create a new temporary moon or something along the way judging from her mothers kind. The sphere's explained the mother's simple mindedness, and she found herself watching the essence of the egg, as if waiting to see if it stirred in its unbirthed dreams.     
+Did it already have spheres? She peered closer, snout almost touching the serpents side in her distractedness.

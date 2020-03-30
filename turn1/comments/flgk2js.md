@@ -1,0 +1,3 @@
+Sarah suddenly stopped, feeling something watching her. She continued to focus on the violet goddess, but at the same time was staying on alert for anything or anyone else who might be following her.
+It didn't take long. 
+The first she saw was eyes. Many, many eyes. Then she realized they were all glued to a tentacle. She stiffened, not sure what to do or how to react to a tentacle covered with eyes watching her. *Better wait and see what happens* she thought to herself.

@@ -1,0 +1,3 @@
+"I will certainly consider it." Gon replied to both Kain and Prismari at the same time, before hesitantly shaking Prismari's hand. The gryn god was used to bowing, and shaking hands with someone who he fully expected Lyva would have abandoned him for not so long ago seemed odd.
+
+"It was... a pleasure." Gon added with a smile as he remembered that he was no longer a mere demi-god. "I am glad you made it here."

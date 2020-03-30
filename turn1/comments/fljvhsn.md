@@ -1,0 +1,3 @@
+"Agriculture, so you made all these fertile fields full of grain then? Interesting... In the world I last inhabited, my father created great open plains, full of fertile soil." Gon replied.
+
+"What do you plan to do with this world, Shilo? Competition and agriculture are an interesting combination. Will you make the world compete for bountiful harvests? Or punish those who fail with famine?" Gon asked, as he gazed over the fields of grain.

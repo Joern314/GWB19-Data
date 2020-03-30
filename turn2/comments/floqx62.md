@@ -1,0 +1,1 @@
+The Goddess of Protection mentioned above was walking among the mortals, seeking and searching for... a purpose? Someone to protect? Something to catch her interest? She wasn't sure. The mortals, perhaps because they saw her attempting to defend them from Azrakal or simply because she didn't look threatening, gathered around her, although they kept a distance.

@@ -1,0 +1,1 @@
+[ sounds good. as this is a metaphysics, just copying an old hero's strength seems perfectly fine for 2 acts. not sure if weird stuff happens if the race differs, will need to think about that once that happens ]

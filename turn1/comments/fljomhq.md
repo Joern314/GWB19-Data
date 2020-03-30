@@ -1,0 +1,1 @@
+"Fare thee well, Lady Sarah." Sunda spoke, not caring that no one was present. With that he wandered away himself.

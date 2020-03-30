@@ -1,0 +1,2 @@
+Walking through a forest, Thool saw a sight that they had never seen before (though granted, that was a low bar), a swelling mass of water with a cloud of tentacles hovering over it. After some careful crafting, Thool made a raft from some trees nearby, and tried navigating the tough waters. Once the land was just a speck on the horizon, Thool started scattering seeds to the wind and growing trees on the islands that Malaphet started to create.   
+\[-1 act of primordial terraform\]

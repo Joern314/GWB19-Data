@@ -1,0 +1,3 @@
+"I hold dominion over the animals of the world and its untamed wilds." Sunda stated. He knew this, knew it as perfectly as he knew the two spheres of divinity that curled around his very soul.
+
+"As to the world? I am not sure." He admitted. He had thought little of what he would actually *do* with the world once it was truly working. "But I know that whatever shall come I shall endure, learn, and use that which I have learned to become better than I once was."

@@ -1,0 +1,5 @@
+"I'm happy to see someone enjoying existing!" Lyva giggled at the display, darting over and around the gigantic manifestation, before suddenly diving into the water. As she did, her own form shrank down, becoming a metallic athletic humanoid, though still with long horns and a sinuous tail.
+
+"And I'm glad to have a sea to enjoy again now that I can... uh... can sw... COME ON!" She impacted and fumbled, flailing arms, legs and tail haphazardly as she sank through the sea, dense form not buoyant in the slightest and quickly found herself jumping irritably on the sea floor. The lack of air didn't seem to trouble her, but her cheeks seemed to colour with minor embarrassment, "I swore I'd cracked swimming, I've been swimming through space for.... boring time! Why is water harder than space!?"    
+
+She exhaled a long sigh, a plume of warm bubbles, "Anyway, I am Lyva, Goddess of Metal and Greed, and you are very welcome to my universe! Have you got a name yet, Sea?"

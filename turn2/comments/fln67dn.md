@@ -1,0 +1,5 @@
+Among the gods of this new world, there was one the Sorcerer was reasonably sure he could convince to aid his endeavors. And so he went to see the goddess of metal and greed, Lyva the snake of metal. The young among the Apokryph were antsy and eager to see this new world. They would learn as their older brethren had, that the world beyond could be mightily disappointing. But as the Sorcerer needed a presence in the world anyway to establish a bigger foothold, he saw no reason to deny them. He just needed to make bodies accustomed to the this world for them. And if he could find someone to lighten the load so much the better. So with little fanfare the Sorcerer left the Rift and reached out via godspeak.
+
+"Greetings! I am the Sorcerer. I know we have not met in person yet, but I am the god of death and magic. I want to make a proposition. As far as I can tell so far, it is your mission to own everything in this reality. And you very well might in the end. But there are places like the Rift where your writ ends. How would you like to own something or at least part of it, that is not of this world, but very well could be?"
+
+[/u/smcadam /u/Rhaegar1994]

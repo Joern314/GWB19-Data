@@ -1,0 +1,1 @@
+Prismari began sitting cross-legged in the void “hmm so your saying you just  want a friend! We have a deal.... ok repeat after me. HEL LO. That is a greeting to people.” Prismari said he didn’t seem to mind the eyes as of yet. But perhaps found them a little creepy

@@ -1,0 +1,3 @@
+"Reeeally? Feeling others desire for revenge..." He smirked. "Should be most enjoyable. We do seem to be lacking some ingredients, though. I suppose those are mortals? That's how this works, right?"
+
+"Hrrm. I guess I have a lot to learn, then... Huh? Not as simple as wandering the world and taking revenge for people is it?" Gon sighed. "Oh well, thankfully, you have some experience. Though, if I am being honest, making those jewels was easy, so how hard can mortals be?"

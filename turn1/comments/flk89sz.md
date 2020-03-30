@@ -1,0 +1,1 @@
+Sarah smiled. "This is nice." twirling and dancing, Sarah felt herself becoming more at ease. Darkness gathered around them, following its mistress although not close enough to disturb the two. "So, Kain, if we're dancing together, might as well get to know each other. If you don't mind me asking, what do you love doing?"

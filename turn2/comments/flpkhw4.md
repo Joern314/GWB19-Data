@@ -1,0 +1,3 @@
+Dawri's brow furrowed. At first, he didn't notice. He had not made any attempts to contact mortals yet, so he did not expect any influx of power... and yet, the air seemed to lack the hum of power Dawri would have expected at this point.
+
+"That is odd, isn't it?... Would either of you happen to know what could be the matter? I haven't been here very long... or I just haven't been paying attention."

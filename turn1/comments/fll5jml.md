@@ -1,0 +1,3 @@
+"They're my trees too, and I'm not taking enough to hinder them. Most of what I took was fallen already, and they have plenty to eat." Lyva lashed her tail as if to demonstrate, stirring up fallen leaves and flowers with a gust.   
+
+"But you are what I wanted to see. Thool. Welcome to my world, you seem to have been born into it. I am Lyva, Goddess of Metal, and I worked to stir things up, leading to your creation, so you're part of my world too!" She grinned, eyes bright like stars over a sharp, sharklike smile. "Are you a family? Where'd the child go? Are there more of you?"

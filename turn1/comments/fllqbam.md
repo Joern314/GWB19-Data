@@ -1,0 +1,5 @@
+"Oh really?" Lyva murmured, glancing over the seams across her humanoid form, closed portals into her vast hoard pocket dimension. "Your wit is very quick to figure me out so fast. But I can't just share my things with someone I hardly know. Especially after I shared so much already! It took a good chunk of my hoard to build this planet, and I've barely been properly thanked."   
+
+She frowned, and abruptly the lines on her arms and stomach widened slightly, releasing gouts of steaming bubbles as another change rippled over her. From silvery, her skin changed to a smooth black metal that hummed with power, her white hair drifting like a cloud in the water.   
+
+"But let's think, what do I have spare.... how about Brinya? Or Nedaline? Or... when did I get the name Sapphire? Well that never fits so Sapphire could be on the table at a low price too. Seriously mortals are weird."

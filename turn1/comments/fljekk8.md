@@ -1,0 +1,1 @@
+"Greetings, Sunda." Sarah looked at the strange creature, trying to understand his form. "My name is Sarah. It's a pleasure to meet you. Are you a new god, by chance?" she tilted her head to the side.

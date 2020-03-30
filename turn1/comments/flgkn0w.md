@@ -1,0 +1,3 @@
+As Oryllia's flame flickered upon Malaphet's form a lesser eye appeared and watched it, before with a a engulfing motion the flames were drawn into Malaphets form. If Oryllia maintained a connection with the flames she could tell that they still burned within Malaphet, almost nurtured by the great entity, perhaps in a way accepting or acknowledging her offer.
+
+"(Incomprehensible gibberish)" Rumbled Malaphet as his three greater eyes remained focused on her.

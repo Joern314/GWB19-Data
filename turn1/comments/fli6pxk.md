@@ -1,0 +1,3 @@
+Curious at the sudden appearance of massive fields of grain over what once were barren plains of soil, a tall and dark-skinned man with feathers instead of hair and talons instead of feet started wandering around in them, curious if this grain was itself a god or something natural to the world. He was surprised instead to come across a something that looked much like an animated statue.
+
+"G'bolla. Hello? Can you speak? Are you a native of this world?" Gon asked curiously.

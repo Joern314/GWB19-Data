@@ -1,0 +1,3 @@
+One day, a strange man with pointed ears, dark skin covered in bright white scars, and green and purple feathers instead of hair wandered into the area where he felt a new presence. He looked out of place with his white robes, eagle-like talons for feet, and a sword with a glittering golden hilt in a black scabbard on his waist. 
+
+"G'bolla? Um, hello? Is anyone around here? I noticed the change in, well... existence. I am the god of Earth and Vengeance, Gon Gryn. Is there a new divine around here? Or are you a native deity we have woken up?" He called out eagerly.

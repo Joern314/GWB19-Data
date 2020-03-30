@@ -1,0 +1,5 @@
+Sarah turned, feeling her hair being touched. The figure before her was not what she expected to see. 
+The other goddess - because Sarah didn't have a doubt that she was a goddess - looked like her in form, appearing feminine, but that was where the similarities ended. 
+She was made of violet fire and was covered in metal. Her eyes were covered as well, although instead of a simple metal plate like the rest of her body, what covered her eyes was a metal plate with curling horns sticking out of it.
+Sarah would've questioned how could the goddess see her with this thing on her eyes if not for the fact that her claws were running through her hair.
+"Greetings," she said, trying to keep her voice neutral while turning around to keep the goddess in her sight. It would be best not to make enemies too soon. "I thank you for your welcome, but may I ask who are you?"

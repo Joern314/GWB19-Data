@@ -1,0 +1,1 @@
+Sarah hesitated. The deal seemed... good, but she couldn't shake the feeling that it didn't make sense, somehow. Also... Hmmm... "What kind of guidance do you offer? I presume we don't rule over the same things."

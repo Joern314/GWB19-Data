@@ -1,0 +1,1 @@
+Azrakal sure did scream, the pain was quite exquisite, while the Blood Dagger did absorb and drank of the blood that fell, the lack of skin made a lot more blood spill out.

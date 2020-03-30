@@ -1,0 +1,1 @@
+Sarah saw that this goddess was a proud one, although she seemed nice enough, offering to guide her. Sarah was new, so she could use help. She was just about to agree when Oryllia said the next sentence. A deal? Why would a goddess who clearly knows much more than her wish to strike a deal with her? "What kind of deal?" she questioned, allowing curiosity to dominate her voice.

@@ -1,0 +1,1 @@
+[Thank you! I understood almost everything, expect the last line: what shields? and why they won't survive? I didn't really understand that sentence.]

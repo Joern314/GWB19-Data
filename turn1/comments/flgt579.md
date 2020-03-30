@@ -1,0 +1,3 @@
+Prismari had been partly correct, occasionally Malaphet had gotten distracted by . . . Something and on instinct his tendrils started to reach towards the God of Heroes, ass if to attempt to pull him into one of his many mouths, but each time ceased, perhaps due to it still feeling full.
+
+"(Incomprehensible gibberish)" rumbled Malaphet as Prismari left and while the eldritch thing did not follow Prismari, he could always almost feel an eye of the entity watching him from a distance. Or perhaps it was just his imagination. . .

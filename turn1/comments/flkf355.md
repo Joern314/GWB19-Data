@@ -1,0 +1,1 @@
+Prismari still mad about the stabbing complied with lyva’s request and began using all his might to hold Azrakal still

@@ -1,0 +1,1 @@
+Feeling the brith of a new divine in the world both kain and Prismari  went looking for their newest compatriot. They Just wanted to say hello and welcome them to the world and of grouse see what the new divine had in store for the world

@@ -1,0 +1,1 @@
+[ Turn 2 is up, it is stickied on the top of the subreddit] [ The current turn is locked, you can no longer write comments here]

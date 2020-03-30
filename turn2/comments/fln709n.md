@@ -1,0 +1,5 @@
+It took seconds for a silvery portal to appear, and a humanoid woman with dark greenish metal skin, curling ram horns and a serpentine tail to appear before him. Lyva wore a strange grey dress that seemed to breathe slightly as if alive, and silver jewellery adorned with small glyphs and runes that might have been magic once, somewhere else.     
+
+"Greetings, it's nice to meet you outside of your bubble, Sorcerer." She answered politely, though looked a little surprised at his appearance, less chaotic than she had expected from his metaphysics. "You seem to understand me well enough. Yes, I would like to own things, but your tone suggests this isn't going to be a gift, is it?"
+
+"What do you want, sir Sorcerer? Not as trade, but why are you here? What is your goal?" She wondered, tail curling around herself defensively.

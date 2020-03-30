@@ -1,0 +1,3 @@
+Lyva considered this news, and then considered her consideration of it, and her consideration of her consideration of....
+
+She didn't particularly like paranoia. It was wasteful and frustrating. And if her rivals were paranoid, they might by chance be more problematic to deal with. And she was hungry. So she started biting and chewing, trying to kill the little godling between steel teeth.

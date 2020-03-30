@@ -1,0 +1,1 @@
+Lyva returned to the planet, and shifted into her humanoid stance, trying to block out her divine senses and look around with physical eyes. Would mortals see a giant snake around the sun?

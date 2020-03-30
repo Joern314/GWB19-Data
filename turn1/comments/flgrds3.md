@@ -1,0 +1,1 @@
+"Sarah, huh? I am Gon Gryn. Nice to meet you, goddess. I am a former semi-divine being that has apparently successfully become a fully divine being. I was able to hang on to Earth and Vengeance through the process." Gon replied. "Why are you chained up? Are you a prisoner? Oh, wait, what are your domains?" Gon asked inquisitively as he bowed slightly in a greeting.

@@ -1,0 +1,1 @@
+"How so?" Sarah raised an eyebrow. "Pardon me if I am being rude, but you do not know me nor my will, and we met not a long time ago."

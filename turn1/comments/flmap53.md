@@ -1,0 +1,1 @@
+The Vortex continued to spin, apparently unimpressed by Kain's presence.

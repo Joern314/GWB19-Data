@@ -1,0 +1,3 @@
+Dawri cocked an eyebrow and smirked at the boy. Clearly this was an enthusiastic young deity.
+
+“Indeed. The tales of mortals are often more fascinating than the tales of gods. When a God kills a Wyrm, of an Archdemon, or an Eldritch Horror, it’s Tuesday. When a mortal does it, they are risking everything. Body, mind, sometimes even soul. I too have a fascination with exceptional people, and the tales they weave. I am certain we will get along just fine.”
