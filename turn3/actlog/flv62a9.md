@@ -1,2 +1,3 @@
 [Recovery: Guiding the Gelbrous Jungle Tribe](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flv60hk/)   
-[Beautiful Landscapes Prompt: 5 Acts spent on Kiln Isles and Serpent Constellation](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flva0pl/)
+[Beautiful Landscapes Prompt: 5 Acts spent on Kiln Isles and Serpent Constellation](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flva0pl/)    
+[-1 Act to Smite and Eat some Sunda worshippers](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flwphvh/)

@@ -6,4 +6,14 @@ The primary reminder for them of who their patron was were the masked and hooded
 
 And as the Rift Keepers pass by the souls of the dead start to follow them and all mortals can watch as a procession of ghosts walks towards the Rift.
 
+As an added bonus the Sorcerer decided to enable the Apokryphes. So he chose one Apokryph from among the people in the Rift, a man who had served him well in the past and sent him as his prophet to the people. He was the Theos Aner, the divine man, prophet of the Sorcerer. And he had come to teach them how to use their innate magic they were born with and showed them the ritual to enable it.
+
+Fatigued from millenia in study to pass the time, the Sorcer chose to take a break and incarnated.
+
 [Recovery: Guiding the Tribes]
+
+[-3 prophet: Theos Aner]
+
+[-3 alter being: innate magical gifts]
+
+[Incarnation]

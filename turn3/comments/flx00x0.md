@@ -1,0 +1,5 @@
+\[Sometimes reddit can be a little slow or drop notifications, though I believe if you are referring to what happened in the fight between Malaphet vs Sarah and Prismari then that maybe because the next person in the chain of comments did not respond before the turn change. If that is the case or at least close and you would like to continue the thread you can send those involved a message either through reddit or in discord to either remind them or ask them if they would like to continue the event.
+
+If it was someone else who commented in the chain last and you are interested in continuing the conversation you can carry on doing so in this turn, just make sure to tag the person on the other end of the conversation so they know you are continuing, generally by using the following format\]
+
+\[ /u/(Their username here), continued from last turn (link to the last comment in the chain that you wish to continue)\]

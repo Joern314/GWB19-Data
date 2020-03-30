@@ -1,0 +1,3 @@
+As Lyva began controlling the metal with in the blade Prismari raw  strength and skill began to leg behind lyva divine mastery of metal and his frustrations was beginning to show. 
+
+For a moment like kain’s eyes his went black a colour lyva had never seen before and suddenly his speed increased and his blade strike began feeling slightly electrified, as this happened Prismari began to attack a little more erratically changing up his movement much to the surprise of lyva

@@ -1,0 +1,3 @@
+"She makes the organisation much easier," Lyva smirked, watched him eagerly, then delicately lifted and drank down a soul herself. The rush of power felt less than it had as a demigod, when she had little idea of what true divinity felt like, yet it was welcome and pleasing nonetheless.    
+
+"Mmmmm, to my world, kzeg!" She cheered, mimicking him and passed him the tomes of old magics while she patiently watched and ate the souls alongside him.

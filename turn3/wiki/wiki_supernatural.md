@@ -55,7 +55,11 @@ Of note, hero artifacts are spawned from a soul and as such aren't fully inanima
 
 ---
 
+## Divine Law
+
 ## Magics
+
+## Miracles
 
 ## Artifacts
 
