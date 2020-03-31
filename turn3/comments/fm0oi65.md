@@ -1,1 +1,0 @@
-[Yep. I'll detail other parts of the temple-caves as we go along in the game if she wants more of a tour.]

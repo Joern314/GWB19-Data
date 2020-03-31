@@ -1,5 +1,0 @@
-Rictus saw Prismari coming and continued fishing diligently, despite never catching anything.
-
-"Sounds mysterious! Whom do you want me to meet?" he asked. Seeing Kain arrive his question was answered. His outfit shifted from hunting wear to armor. He had changed to his role of law god. Heavily armored with a cloak of fur and the Iron Codex chained to his side and an enormous executioner's blade in his hands he stood up from his sitting position and frowned.
-
-"I already did! And seeing the Shadow's brood darken my doors I am glad I did. I will say so much! If you don't wish to taste my arrows or to be hit with this blade you will stay where you are and not come closer. You, your parents and your brother have done enough harm to deserve the beheading I am on the verge of trying to inflict on you!" he growled angrily.

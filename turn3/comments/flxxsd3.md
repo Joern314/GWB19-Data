@@ -1,1 +1,0 @@
-"I'm not made to lose things. I suppose it goes against my domains." Lyva said gently, took a breath, and stood, taking her grip tightly, "Where did you have in mind?"

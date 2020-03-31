@@ -1,1 +1,0 @@
-Lyva's sight could no longer penetrate the Snake, but her spheres of Metal and Greed told her that the Egg was still within the Gargantuan Snake. Whether it was damaged or not was beyond her knowledge.

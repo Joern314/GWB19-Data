@@ -1,1 +1,0 @@
-"Indeed I do know of the Outsider. I took the design for them from my library, which I inherited from him." The Sorcerer said intrigued. It was the first time in aeons that he had found a track of the Outsider. So he was still alive and wandering the multiverse. This was brilliant news. "Mind telling me how you know about him?"

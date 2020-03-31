@@ -1,2 +1,0 @@
-Lyva sighed, smiled and hugged her tail close, savouring the embrace.   
-"I know. Thankyou. And I'm not done yet. You're not ever escaping me, understand?" She announced, "And maybe let me out now. According to my counter we've been like this for a week. Time flies for old gods."

@@ -1,1 +1,0 @@
-"The Goddess of Hexes and Contracts offered her help and she had doubts about it?" Lyva repeatedly sceptically, "She's young, I'm not surprised. Would you have not created the Hex if she had accepted your aid? Oh, and... well, you can ask me anything you want as payment, or I do have some interesting toys."

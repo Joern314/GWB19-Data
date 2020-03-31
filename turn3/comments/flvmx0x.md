@@ -1,3 +1,0 @@
-Prismari hanging from his sword on the very outside of lyva mouth didn’t know what to say nor really what to do but thinking back to his and Celastra sparing match he became a blob and stretched himself as thin as possible and covered lyva’s head giving a slight zap and then with a giggle spoke 
-
-“Well this was certainly a surprise... you grow so much I though I did but you put me to shame.” Prismari voice said with godspeak
