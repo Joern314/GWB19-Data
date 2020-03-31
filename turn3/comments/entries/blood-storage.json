@@ -1,0 +1,9 @@
+{
+  "aliases": [
+    "blood-storage"
+  ],
+  "content": "Description: Magic used to store magics in blood. Stores magic for 1 year and 1 day.",
+  "info": "/u/Plintstorm [Turn 0](/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fm0it0l/)",
+  "parent": "magics",
+  "print_name": "#### Blood Storage"
+}
