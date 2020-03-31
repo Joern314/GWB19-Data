@@ -1,0 +1,5 @@
+"Well, yes, but you asked what to *do* with this one," She argued playfully as he led her on. That argument died quickly with a gasp as they reached the throne room, and she wandered through it reverently, then dashed over to feel the wall, stroking it in fascination. Then she charged over to the other side, took it in from another angle, and abruptly jumped, twisted and stood upside down on the ceiling, taking it all in.     
+
+"It's wonderful!" Lyva cheered, kicked off, and landed daintily on the floor before him, "Is the view good from there? Let's see!"     
+
+She grinned and hopped onto the throne to sit on him, and tried to push his head aside so that she could look perfectly back down the centre of the magnificent hall. Of course, the Earth God in the seat of his power was as movable as a mountain, and with a pout, Lyva shifted, growing multitudes denser as she turned to platinum on his legs. "Hmm, comfy chair too. Who is your crystalline friend here?"

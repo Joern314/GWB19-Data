@@ -1,20 +1,16 @@
 # Divines
 
-
-#### <Name of Entry>
-
-Info: /u/<your name> [Turn X](<link to relevant comment>)
-
-<Description in the usual markdown formatting, but without separators '---' or headlines '####'.>
+## Avatars
 
 ---
 
+## Demigods
+
+---
 
 ## Gods
 
----
-
-###Azrakal
+### Azrakal
 
 **Appearance**: A flayed man with little cloths.  
 Previously: A human male with black tattoos over almost his entire body. No hair and wears simple cloths that covers very little of him.  
@@ -25,64 +21,11 @@ Previously: A human male with black tattoos over almost his entire body. No hair
 
 **Origin**: Born from a divine drop of blood.
 
-
 **Further explanation**:
 
 ---
 
-###Gon Gryn, Vengeance Reborn
-
-**Player**: /u/WHOSGOTYOURSKINNOW
-
-**Spheres**: Earth and Vengeance
-
-**Appearance**:
-A tall and muscular half-bird, half-elven man - a race known as the Gryn - with earthy brown skin covered in bright white scars. The most noticeable of these is the scar over his left eye. In place of hair, he has a crest of feathers similar in appearance to a filled-in native american chief’s headdress. These feathers fade from a bright green to a vibrant purple, with three longer feathers fading from purple to green. Green eyes flecked with purple seem to be full of intensity and he usually wears an odd smirk. Below the knees his legs become those of an eagle and end in sharp black talons. Gon doesn’t seem particularly picky about what he wears, and can often be found wearing whatever clothes are provided to him by Lyva. He does slightly favor dressing in white, but for formal occasions he dresses in a green feather robe; a memento of his “father”. In battle, he wears traditional Arakyl feathermail over a purple padded tunic. The only thing he consistently has on his person is a particular sword known as The Retaliator with its plain dark leather sheath and belt.
-
-**Plans and Style**:
-Gon has only recently ascended into godhood and the shift from a demi-god to a full fledged divine being has left a mark on him. He intends to make the best of his new powers and rather simply enjoy himself. The fetters of fate, however, may not be so easy to sever.
-
-Being the amnesiatic form of a god from another existence, Gon has a strange mix of apathy and curiosity about him. He has a knack for understanding magic and seeks it out with enthusiasm, but tends to laze around otherwise. Outwardly friendly, Gon only truly enjoys the company of those who have become consumed by some desire; he enjoys seeing them work tirelessly towards their goals. Especially if those goals include revenge.
-
-**Origin**:
-Gon was a semi-divine being created partially from the soul fragment of a god with the same name from the Fire Realm and the memories and personality of the phoenix god, Nekalos Toneyl. His former self was apparently destroyed along with Nek’s home realm, but the god attempted to achieve resurrection in a new plane of existence by placing a fragment of his soul in the banished phoenix god. Interference from the Serpent Goddess Celastra of Space, Secrets, and Shadows caused the plan to fail and Gon’s memories were stolen and placed into a demigoddess known as Lyva. Following the recreation of his body as a demigod, the amnesiatic Gon - known as Hunger - found himself somewhat enamored with the demigoddess and her greed. Seeking refuge from a dysfunctional family relationship with Nek and his demigoddess daughter, Hylatka, Hunger decided he would stay with Lyva. Once Lyva had achieved true divinity, Hunger agreed to travel away from the world with her to seek his own divinity elsewhere.
-
-Divinity itself, however, has a price; as he traveled with Lyva, Gon was able to modify the so-called “Toneyl Divinity Manipulation Magic” developed by Hylatka and create a divine spark by siphoning the power of souls consumed by his blade into himself. Unfortunately, this seems to have had some side effects…
-
----              
-
-###Lyva     
-
-**Player:** /u/Smcadam       
-
-**Spheres:** Greed and Metal     
-             
-**Appearance**: Lyva’s usual form is an athletic metallic goddess with curling horns amidst her long hair, and a long tail. Various panels and scales on her can open like drawers and doors to a pocket dimension where she hoards and collects… well, anything that catches her attention.                        
-She normally flaunts her wealth by wearing a vast diversity of jewellery and dresses. She can shapeshift, normally changing what metal she seems composed of, or turning into a metallic asian style dragon occasionally.      
-
-**Origin**: Lyva was originally “born” in a divine accident, from another deities greed breaking off. She’s tempered a little bit by wisdom and cunning since her birth, but fundamentally just wants everything. She quickly acquired adoptive parents, friends and lovers, and used them to ascend to full godhood, before leaving to claim her own planet.           
-
----
-
-
-
-###Oryllia, the Witch-Queen
-
-**Player**: /u/DragoneyeCreations
-
-**Spheres**: Hexes and Contracts
-
-**Appearance**: Oryllia appears as a feminine figure made of violet fire, with metallic pieces adorning her like armor. Most notably, a plate with long curling horns covers her eyes like a blindfold. She wields a hammer, covered in runes.
-
-**Plans and Style**: Oryllia, being a goddess of hexes and contracts, seeks to curse both the land and individuals through various means. She lures mortals in via contracts with her, which will nearly always end in the mortal being cursed. Primarily, she will be feared, and those who actively worship her will be those pushed to the fringes of society for being profane.
-
-**Origins**: Oryllia was born out of the dregs of creation, the profanity, the sludge that soon became the pit from which all of her Hexes came from.
-
-**Further Explanation**: Oryllia is an evil aligned god, so expect plenty of chaos to come from her. It’ll be a mix of simple tricks and horrendous evil.
-
----
-
-###The Forgotten
+### The Forgotten
 
 **Player**: /u/Abacadaren
 
@@ -104,15 +47,101 @@ Sentiment refers to connection and emotion, like love or care (though it can be 
 
 ---
 
+### Gon Gryn, Vengeance Reborn
+
+**Player**: /u/WHOSGOTYOURSKINNOW
+
+**Spheres**: Earth and Vengeance
+
+**Appearance**:
+A tall and muscular half-bird, half-elven man - a race known as the Gryn - with earthy brown skin covered in bright white scars. The most noticeable of these is the scar over his left eye. In place of hair, he has a crest of feathers similar in appearance to a filled-in native american chief’s headdress. These feathers fade from a bright green to a vibrant purple, with three longer feathers fading from purple to green. Green eyes flecked with purple seem to be full of intensity and he usually wears an odd smirk. Below the knees his legs become those of an eagle and end in sharp black talons. Gon doesn’t seem particularly picky about what he wears, and can often be found wearing whatever clothes are provided to him by Lyva. He does slightly favor dressing in white, but for formal occasions he dresses in a green feather robe; a memento of his “father”. In battle, he wears traditional Arakyl feathermail over a purple padded tunic. The only thing he consistently has on his person is a particular sword known as The Retaliator with its plain dark leather sheath and belt.
+
+**Plans and Style**:
+Gon has only recently ascended into godhood and the shift from a demi-god to a full fledged divine being has left a mark on him. He intends to make the best of his new powers and rather simply enjoy himself. The fetters of fate, however, may not be so easy to sever.
+
+Being the amnesiatic form of a god from another existence, Gon has a strange mix of apathy and curiosity about him. He has a knack for understanding magic and seeks it out with enthusiasm, but tends to laze around otherwise. Outwardly friendly, Gon only truly enjoys the company of those who have become consumed by some desire; he enjoys seeing them work tirelessly towards their goals. Especially if those goals include revenge.
+
+**Origin**:
+Gon was a semi-divine being created partially from the soul fragment of a god with the same name from the Fire Realm and the memories and personality of the phoenix god, Nekalos Toneyl. His former self was apparently destroyed along with Nek’s home realm, but the god attempted to achieve resurrection in a new plane of existence by placing a fragment of his soul in the banished phoenix god. Interference from the Serpent Goddess Celastra of Space, Secrets, and Shadows caused the plan to fail and Gon’s memories were stolen and placed into a demigoddess known as Lyva. Following the recreation of his body as a demigod, the amnesiatic Gon - known as Hunger - found himself somewhat enamored with the demigoddess and her greed. Seeking refuge from a dysfunctional family relationship with Nek and his demigoddess daughter, Hylatka, Hunger decided he would stay with Lyva. Once Lyva had achieved true divinity, Hunger agreed to travel away from the world with her to seek his own divinity elsewhere.
+
+Divinity itself, however, has a price; as he traveled with Lyva, Gon was able to modify the so-called “Toneyl Divinity Manipulation Magic” developed by Hylatka and create a divine spark by siphoning the power of souls consumed by his blade into himself. Unfortunately, this seems to have had some side effects…
+
+---
+
+### Lyva
+
+**Player:** /u/Smcadam       
+
+**Spheres:** Greed and Metal     
+             
+**Appearance**: Lyva’s usual form is an athletic metallic goddess with curling horns amidst her long hair, and a long tail. Various panels and scales on her can open like drawers and doors to a pocket dimension where she hoards and collects… well, anything that catches her attention.                        
+She normally flaunts her wealth by wearing a vast diversity of jewellery and dresses. She can shapeshift, normally changing what metal she seems composed of, or turning into a metallic asian style dragon occasionally.      
+
+**Origin**: Lyva was originally “born” in a divine accident, from another deities greed breaking off. She’s tempered a little bit by wisdom and cunning since her birth, but fundamentally just wants everything. She quickly acquired adoptive parents, friends and lovers, and used them to ascend to full godhood, before leaving to claim her own planet.
+
+---
+
+### Oryllia, the Witch-Queen
+
+**Player**: /u/DragoneyeCreations
+
+**Spheres**: Hexes and Contracts
+
+**Appearance**: Oryllia appears as a feminine figure made of violet fire, with metallic pieces adorning her like armor. Most notably, a plate with long curling horns covers her eyes like a blindfold. She wields a hammer, covered in runes.
+
+**Plans and Style**: Oryllia, being a goddess of hexes and contracts, seeks to curse both the land and individuals through various means. She lures mortals in via contracts with her, which will nearly always end in the mortal being cursed. Primarily, she will be feared, and those who actively worship her will be those pushed to the fringes of society for being profane.
+
+**Origins**: Oryllia was born out of the dregs of creation, the profanity, the sludge that soon became the pit from which all of her Hexes came from.
+
+**Further Explanation**: Oryllia is an evil aligned god, so expect plenty of chaos to come from her. It’ll be a mix of simple tricks and horrendous evil.
+
+---
+
+### Rictus
+
+Info: /u/Horatius-Cocles [Turn 1](https://old.reddit.com/r/GodhoodWB/comments/fo2h2r/game_19_endless_pantheon_applications/fldx9eb/)
+
+**Spheres**: Law and Hunt
+
+**Description**: Rictus generally appears in human form. The form of the man he was born as. He is of a tall but lean build and is clothed in the leather garb of a hunter. He has shoulder long, brown hair with gray streaks. He wears his hair bound back behind his head in a braid. Rictus has blue-gray eyes and a thick, full beard. His beard has the same color as his hair. The right half of his face is scarred with a big claw mark.
+
+When he appears as the god of the hunt he often wears a green cloak. This hides his face in darkness under the cloaks hood, showing only the eyes of a predator, glowing in the dark of the hood. He also carries the full apparel of a hunter.
+
+When he appears as the god of law he appears in armor and wearing a heavy pelt coat, carrying an executioner's sword and a law book, seemingly made from iron.
+
+**Personality**: Rictus despite his ascension millennia ago still is mostly like the mortal man he once was. Rictus likes to look out for his people and see that they are provided for as he always has as one of the hunters of his hometown. On the other hand he is unmoving in punishing those that break the laws and that endanger the well-being of people at large.
+
+**Background**: Rictus grew up in a small town in the mountains. Later on he had learned the trade of a hunter.
+
+He lead the typical life of a human. He had a family. He was involved in occasional fights. He aged and slowed down, but gained in experience. He joined the elders of his hometown. Rictus learned to value the peace and sense of community, so everyone could work and live in relative prosperity. As far as was possible in a part of the world regularly plagued by raiders, vampires and ghouls. 
+
+One day a group of wandering monks called the Logothets had marched through his hometown. Rictus listened and learned from the Logothets about the nature of reality and divinity as taught by the god called the Outsider. Mortals were normally not privy to such information
+
+For Rictus all this discussion was too theoretical. It was a bunch of talk about the theoretical construct of the mind and the makeup of nature as a whole. Nothing that really helped him in doing his duty. Though he never really forgot what he he had heard.
+
+The priests had wandered on disappointed. Rictus however spent much of his time contemplating the words of the Logothets, when he was out alone at night. Or sitting and waiting for the best shot on one of his hunts.
+
+During a hunting accident where he was shot and left for dead by another hunter. He lay in the snow bleeding and feeling his live drift away. So he started praying for his family, that they were taken care of. To the gods so that he might find a good place in the afterlife. Ans so he started remembering the words of all the priests he had heard. In his hour of death he could feel the words of the Logothets from so long ago gain a new dimension. He felt something happening. A deep understanding of the world around filled him. He felt, that if he reached out he could touch things that normally were only abstracts to mortals.
+
+In his life he had been familiar with two things, hunting and the law. He reached out for the understanding of these things he knew so well. And so he ascended.
+
+He left his homeworld after an apocalyptic war against a god called the Shadow. And while the war was won and the Shadow vanquished the world became hostile to gods. And so he moved to a new world. Where he created humanity and built a world for mortals confronting another great evil alongside fellow divine beings called the Master of the Abyss.
+
+Wherever Rictus turned those bent on unjust destruction and domination seemed to abound. And with the world safe once more he decided to strike out and do what he did best, bring the law to protect people and hunt down those who broke it.
+
+---
+
 ###The Sorcerer
 
-/u/Gwydion-Drys
+/u/Gwydion-Drys 
+
+[Turn 1](https://old.reddit.com/r/GodhoodWB/comments/fo2h2r/game_19_endless_pantheon_applications/flcurqi/)
 
 **Spheres:** Magic and Death
 
 **Appearance:** The Sorcerer is humanoid in appearance. What distinguishes him from a normal human however is his grey skin, which is covered in tattoos and runic markings, retelling his life story to those who can interpret them.
 
-He is normally clothed in splendorous traveling clothes and wears a hooded cloak. His eyes are representative of a dark night sky filled with stars.
+He is normally clothed in splendours travelling clothes and wears a hooded cloak. His eyes are representative of a dark night sky filled with stars.
 
 **Plans and Style:** Magic, Death and the Afterlife are linked. Expect to see as much in-game.
 
@@ -122,7 +151,7 @@ He is normally clothed in splendorous traveling clothes and wears a hooded cloak
 
 ---
 
-###Sunda
+### Sunda
 
 /u/StarOfTheSouth
 
@@ -136,20 +165,11 @@ He is normally clothed in splendorous traveling clothes and wears a hooded cloak
 
 **Further Explanation:** Not really sure what needs to be elaborated on, as I'm mostly just planning on doing character stuff this game. No big plans from me.
 
-
 ---
-
-## Demigods
-
-## Servitors
-
-## Avatars
 
 ## Minor Gods
 
----
-
-###Dogu
+### Dogu
 
 **Player**: /u/Abacadaren
 
@@ -161,7 +181,7 @@ He is normally clothed in splendorous traveling clothes and wears a hooded cloak
 
 ---
 
-###Kzivo
+### Kzivo
 
 **Player**: /u/WHOSGOTYOURSKINNOW
 
@@ -176,7 +196,7 @@ His exact origins are unknown; Gon Gryn awoke one day to find him simply working
 
 ---
 
-###Olasea
+### Olasea
 
 **Player**: /u/WHOSGOTYOURSKINNOW
 
@@ -191,7 +211,32 @@ She can most often be found on mountain tops, sanding away rough edges, breaking
 
 ---
 
-###Rhelii the Reaper/"Miss Fortune"
+### Panoptes
+
+/u/Gwydion-Drys  
+[Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fln8py8/)
+
+The Sorcerer remade the divine soul of the Recorder, a minor god he had killed as it was sent by Azrakal to spy on the Sorcerer, into Panoptes. He sits on the highest tower of Oneiros in the Rift and directs the Rift Keepers to their duty to collect souls.
+
+Panoptes is a tall figure. Almost human. It just has hundreds of eyes all over its head. The  Panoptes means the all-eyed or allseer. 
+
+Panoptes would look out into the Rift and the world and keep track of mortal lives and lifespans. He would record the deeds of the living and steer them towards an afterlife in the Endless Woods or Oneiros depending on their deeds. And he would dispatch the Rift Keepers living in Oneiros to collect the souls of the living back to the Rift.
+
+---
+
+### Radamanthys
+
+/u/Horatius-Cocles 
+
+[Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fltekq0/)
+
+A human-like bearded minor god. He is the Judge of Judges. Deliberating on who was worthy to receive the powers of an Iron Judge and to use them responsibly.
+
+And upon finding such a person and establishing that their city, nation, region or even general area was in need of the protection of the Iron Law, that person would be granted the powers of an Iron Judge.
+
+---
+
+### Rhelii the Reaper/"Miss Fortune"
 
 **Creator**: Oryllia ( /u/DragoneyeCreations )
 
@@ -199,9 +244,77 @@ She can most often be found on mountain tops, sanding away rough edges, breaking
 
 **Sphere**: Misfortune
 
-**Appearance**: Rhelii appears as an amber-skinned giantess with long braided and dreaded hair, colored black.
+**Appearance**: Rhelii appears as an amber-skinned giantess with long braided and dreaded hair, colored black.   
 
-**Origins**: Once a blighted mortal who wandered the earth in fruitless pursuits, Rhelii now serves within the Hexforge, tending to the Witch Gardens, where the resources for Oryllia's dark concoctions are made. She is responsible for sewing the misfortunes of mortals within the flora of the garden.
+**Origins**: Once a blighted mortal who wandered the earth in fruitless pursuits, Rhelii now serves within the Hexforge, tending to the Witch Gardens, where the resources for Oryllia's dark concoctions are made. She is responsible for sewing the misfortunes of mortals within the flora of the garden.             
+
+---
+
+###Leyanna
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
+
+**Sphere**: Accounting
+
+**Appearance**: A half serpentine naga woman with abacus beads as her scales. Leyanna was created from within Lyva's essence to serve as her assistant, and keeps track of all of Lyva's hoard and treasures.    
+    
+
+---
+
+###Pyrephas
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
+
+**Sphere**: Combustion
+
+**Appearance**: A blazing demonic figure in charge of keeping fires burning. He was forged from a mortal Lyva shoved in a volcano.       
+
+---
+
+###Igali
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
+
+**Sphere**: Inspiration
+
+**Appearance**: A small golden dragon who glows bright like a lightbulb when he has an idea. He was remade from the remains of a minor God of paranoia.     
+
+---
+
+###The Sisters of Worship, Yinquel, Chantra and Vesper
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
+
+**Sphere**: Prayer, Praise and Worship
+
+**Appearance**: The three sisters were created to help Lyva collect her worship and hear her followers better. Vesper, of Prayer, is mouthless but has many ears across her body. Chantra of Praise has three faces and many mouths to sing with. Yinquel, of Worship, is action oriented and has six arms to work with.     
+
+---
+
+###Ferrick
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqg9lg/)
+
+**Sphere**: Corrosion
+
+**Appearance**: A rotten amber gargoyle who sees to it that oxidization, rust and corrosion work properly. 
+ 
+   
+   
+
+---
+
+## Servitors
 
 ---
 
@@ -209,6 +322,6 @@ She can most often be found on mountain tops, sanding away rough edges, breaking
 
 #### The Lizard
 
-Info: /u/joern314 [Turn 1]()
-
 A yellow-black lizard who *might* be very powerful and dangerous. Speaks like some kind of narrator.
+
+---

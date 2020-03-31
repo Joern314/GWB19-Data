@@ -1,0 +1,7 @@
+#The Goldenleaf Atolls
+
+Far off the coast, due to unexpected magmatic formations, formed a long string of ring shaped islands with very lively barrier reefs, all rife with very unique life. The name "Goldenleaf Atolls" was given due to an iconic palm tree that grew on the islands. While the leaves on these Goldenleaf Palms were not *actually* golden, they were so wide and flat that while approaching the islands on a sunny day (which was most days around these atolls), they would shine in a way that made it seem like the island was made of gold.
+
+The barrier reefs of course were populated with lots of corals and anemones, as well as all sorts of small fishes. most notable amongst these swimmers, were the Devodallies, a strange species of fish that mated soon after reaching maturity, and which then would spend the rest of their lives tightly bonded with their mates, and not just living together, but literally forming a permanent physical attachement together, and needing to swim in tandem to move effectively. While certainly weird and quite unlikely creatures, travelers who came to the Atoll came to appreciate these fish, finding their devotion to be a cute, if somewhat intense, symbol of love.
+
+[Is this alright for a terraform and bioform?]

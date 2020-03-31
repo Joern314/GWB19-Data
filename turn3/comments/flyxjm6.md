@@ -1,0 +1,1 @@
+"Do you have a better bet in mind?!" Lyva called as she shot towards him, propelled by gravity, weight and her chain as her tail split into two longer thinner lashes that whipped towards him.

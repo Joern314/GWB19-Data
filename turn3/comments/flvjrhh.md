@@ -37,4 +37,4 @@ The Thromboar is one of the only animals of the island chain to actively defy th
 
 \[Prompt: Beautiful Landscapes +5 acts -4 for bioform\]
 
-\[Prompt: Beautiful Creatures +4 acts -4 for Thromboar, placed via above bioform\]
+\[Prompt: Beautiful Creatures +4 acts -4 for Thromboar (-2 acts for toxin, -2 acts for strength), placed via above bioform\]
