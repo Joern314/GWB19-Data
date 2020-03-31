@@ -2,35 +2,13 @@
 
 ## Celestial Bodies
 
----
-
 ## Landmarks
-
----
 
 ### Nkan'gbamo
 
 [Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
 
 Temple-caves with large square passages, rooms, and stairs underneath The Shattered Mountains. The walls and ceiling are littered with the jewels from when Gon formed the mountain range and glitter with any source of light. At the deepest point, the largest chamber serves as an audience hall with a single stone throne where Gon met with all the various minor gods he had pulled into his service. A smaller room off of this chamber served as his inner sanctum and living quarters.
-
----
-
-### The Shattered Mountains (Segbiggolod Linenko)
-
-[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
-
-Dropped on the second continent by Gon during its creation, The mountain range is full of jagged cracks and crevices that form caves. The nature of their formation left the tops of the mountains broken into sharp points. During their formation, Gon placed large numbers of jewels under and there remain great riches to be found.
-
----
-
-### Skaal'gbaldol, the Sky Holder
-
-[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
-
-A sixteen mile high mountain in the form of a Nkarlen down on one knee with his hands up like he is holding up the sky. The source of many legends; he is rumoured to have been the first goblin hero.
-
----
 
 ### The Sea Spike
 
@@ -40,11 +18,19 @@ A sixteen mile high mountain in the form of a Nkarlen down on one knee with his 
 
 In good view of both continents the single highest mountain of the world made purely of obsidian rises high above the ocean surface into the clouds. It is called the Sea Spike.
 
----
+### The Shattered Mountains (Segbiggolod Linenko)
+
+[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
+
+Dropped on the second continent by Gon during its creation, The mountain range is full of jagged cracks and crevices that form caves. The nature of their formation left the tops of the mountains broken into sharp points. During their formation, Gon placed large numbers of jewels under and there remain great riches to be found.
+
+### Skaal'gbaldol, the Sky Holder
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
+
+A sixteen mile high mountain in the form of a Nkarlen down on one knee with his hands up like he is holding up the sky. The source of many legends; he is rumoured to have been the first goblin hero.
 
 ## Lifeforms
-
----
 
 ### Magic Eater Fungus
 
@@ -54,7 +40,17 @@ In good view of both continents the single highest mountain of the world made pu
 
 A small symbiotic fungus living by eating magic. It lives in predators and eats the magic of their prey so they can feed on other animals.
 
----
+### Nightwalker
+
+/u/Gwydion-Drys 
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fluduj9/)
+
+**Description:** The Nightwalker is a symbiotic predator. In its primary form, it is similar to a wolf stalking through the utter darkness of the Endless Woods in the Rift. On occasion one or a few of these creatures might venture into the material plane but only occasionally.
+
+If an individual mortal is able to fend off this wolf-like creature it takes gooey form and tries to bond itself to the person. The bonding process acts like sickness and kills the host through ensuing fever and auto-immune reactions. In 1 out of 10 cases however, the Nightwalker forms a symbiotic relationship with the host.
+
+The bond with the Nightwalker endows it's with a sense of echolocation, though interpreting the new sensory input takes time and experience. The immune system of the host is also strengthened somewhat after fighting off the infection like the bonding process and their blood turns slightly acidic.
 
 ### Rift Tree
 
@@ -72,52 +68,27 @@ The Trees themselves look like described above only carved from blue or violet c
 
 The fruit of the glows and be fashioned into a lamp, used by the Rift Keepers to guide the souls of the dead along to the afterlife.
 
----
+### Vanilin
 
-### Nightwalker
-
-/u/Gwydion-Drys 
-
-[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fluduj9/)
-
-**Description:** The Nightwalker is a symbiotic predator. In its primary form, it is similar to a wolf stalking through the utter darkness of the Endless Woods in the Rift. On occasion one or a few of these creatures might venture into the material plane but only occasionally.
-
-If an individual mortal is able to fend off this wolf-like creature it takes gooey form and tries to bond itself to the person. The bonding process acts like sickness and kills the host through ensuing fever and auto-immune reactions. In 1 out of 10 cases however, the Nightwalker forms a symbiotic relationship with the host.
-
-The bond with the Nightwalker endows it's with a sense of echolocation, though interpreting the new sensory input takes time and experience. The immune system of the host is also strengthened somewhat after fighting off the infection like the bonding process and their blood turns slightly acidic.
-
----    
-
-###Vanilin    
 Created by Lyva, [Turn 3](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fm061ji/)     
-Description: A large scaled warm blooded creature with extremely tough jaws to scrape at metal, and the ability to work said metals into its scales, like a huge pangolin. Hunting such creatures would help those who would dwell here to use the metallic scales for their own ends, or could even potentially farm the creature.    
-
----
+Description: A large scaled warm blooded creature with extremely tough jaws to scrape at metal, and the ability to work said metals into its scales, like a huge pangolin. Hunting such creatures would help those who would dwell here to use the metallic scales for their own ends, or could even potentially farm the creature.
 
 ## Materials
 
----     
+### Kindlscal
 
-###Kindlscal     
 Created by Lyva, [Turn 3](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fm061ji/)     
-Description: A glowing metal that is quite easy to work, and constantly sheds warm golden light.      
-
----
-
+Description: A glowing metal that is quite easy to work, and constantly sheds warm golden light.
 
 ## Regions
 
----
+### Continent 1- Primus
 
-### The Second Continent (Name pending)
+/u/Horatius-Cocles, /u/Plintstorm, /u/Rhaegar1994
 
-[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
+ [Turn 1](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flh8ujk/)
 
-A large continent with formed by the gods Gon Gryn, Prismari, and Sunda far across the sea from the first continent. It contains an inland sea and white sand beaches on the western side with rocky coasts on the west. A mountain range runs along the eastern side, from when it was dropped there by the earth god. These mountains are rich in jewels. It has not received a proper name, but Gon calls it "Reloik'lakzek" which means "The Land of Broken Stones."
-
-Currently barren.
-
----
+Created at the dawn of time by Rictus, Azrakal, Prismari and Kain. It holds the Hunting Grounds of Rictus, the Blood Planes of Azrakal and an statue of a colossal man by Prismari and many other places.
 
 ### The First Continent, Primus
 
@@ -126,29 +97,6 @@ Currently barren.
  [Turn 1](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flh8ujk/)
 
 Created at the dawn of time by Rictus, Azrakal, Prismari and Kain. It holds the Hunting Grounds of Rictus, the Blood Planes of Azrakal and an statue of a colossal man by Prismari and many other places.
-
----
-
-#### The Hunting Grounds
-
-/u/Horatius-Cocles 
-
-[Turn 1](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flh8ujk/)
-
-A giant forrest near the ocean full of animals and predators: Typical middle or north European forrest with typical animals therein.
-
----   
-
-#### The Kiln Isles
-
-Creator: Lyva, ( u/smcadam )
-
-[Turn 3](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flva0pl/)
-
-A volcanic archipelago of Islands off the northern coast of Primus, created by Lyva triggering a massive eruption after a sleep. It has a vibrant and quite peaceful ecosystem with few predators built on the volcanic ash of the islands eruption. Trees growing here were tough and hardy, grass was thick, and she added peaceful creatures like kiwis, oxen, horses, goats, apes and many species of birds and snakes across the hills. In the shallow waters, large amphibious geckos as big as horses roamed, and many bright tropical insects.
-
----    
-
 
 #### The Echoing Jungle
 
@@ -165,8 +113,6 @@ The second level, on shelves of old matter on the roots themselves, is home to y
 The low canopy is home to the most life, much of it herbivourous and navigating using vast vines, thick branches, and huge webs. Monkeys, colourful birds, flying reptiles, snakes, lizards, sloths, tree pangolins and all manner of insects as well as mortal dwellers tend to roam in this realm. The webs are creations of Lightsnares, ghostly gigantic spiders that are somewhat transparent, and actually snare webs to impress and attract mates.
 
 The top layers of the canopy are bright and the most fruitful, though also the most volatile and dangerous on slender branches. Fireflies provide light here almost permanently, keeping the screams from sounding, and many species of sensitive bats, birds, flying serpent and tiny monkey like creatures roam here.
-
----        
 
 #### The Great Salt
 
@@ -186,4 +132,26 @@ Predators of the ocean include mertlings, feral half ape half serpent creatures,
 
 The main biohazard of the ocean is Netterkin, a large sea snake with poisonous skin, horns and a resemblance to a serpentine dragon.
 
----
+#### The Hunting Grounds
+
+/u/Horatius-Cocles 
+
+[Turn 1](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flh8ujk/)
+
+A giant forrest near the ocean full of animals and predators: Typical middle or north European forrest with typical animals therein.
+
+#### The Kiln Isles
+
+Creator: Lyva, ( u/smcadam )
+
+[Turn 3](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flva0pl/)
+
+A volcanic archipelago of Islands off the northern coast of Primus, created by Lyva triggering a massive eruption after a sleep. It has a vibrant and quite peaceful ecosystem with few predators built on the volcanic ash of the islands eruption. Trees growing here were tough and hardy, grass was thick, and she added peaceful creatures like kiwis, oxen, horses, goats, apes and many species of birds and snakes across the hills. In the shallow waters, large amphibious geckos as big as horses roamed, and many bright tropical insects.
+
+### The Second Continent (Name pending)
+
+[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
+
+A large continent with formed by the gods Gon Gryn, Prismari, and Sunda far across the sea from the first continent. It contains an inland sea and white sand beaches on the western side with rocky coasts on the west. A mountain range runs along the eastern side, from when it was dropped there by the earth god. These mountains are rich in jewels. It has not received a proper name, but Gon calls it "Reloik'lakzek" which means "The Land of Broken Stones."
+
+Currently barren.
