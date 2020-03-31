@@ -1,2 +1,0 @@
-## Minor Gods[divines]
-

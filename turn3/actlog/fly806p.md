@@ -1,1 +1,0 @@
-[+4 animal prompt, +5 environment prompt, -4 bioform, -3 local terraform](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fly7o3a/)

@@ -1,3 +1,0 @@
-Lyva sat on the railing of the balcony, a precarious perch if not for her tail winding itself around the rail, and her grip remaining around Oryllia's fingers. She stared for a long while, the heavens dancing, clouds whirling and sun hurtling beyond, almost as still as a statue.    
-
-"I and everyone made it well." She judged eventually, and turned back towards Oryllia before adding, "It is a beautiful view."

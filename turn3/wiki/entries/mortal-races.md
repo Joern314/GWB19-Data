@@ -1,2 +1,0 @@
-## Mortal Races[politics]
-

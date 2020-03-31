@@ -1,6 +1,0 @@
-#### Sarash[minor-gods]
-
-Info: /u/Plintstorm [Turn 0](/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fm0it0l/)
-
-Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
-

@@ -1,2 +1,0 @@
-A few months later, after waking herself, Lyva appeared out of thin air before Gon, shiny aluminium skin adorned with familiar jewellery he had given her the materials for.     
-"Aw... you woke up before me. Hello my love, can you hear them now? Their prayers and chants?" She grinned, wide and proud, "Gon, Gon, Gon, Gon, it's nearly as good as souls isn't it?"

@@ -1,9 +1,0 @@
-{
-  "aliases": [
-    "name-of-entry"
-  ],
-  "content": "<Description in the usual markdown formatting, but without separators '---' or headlines '####'.>",
-  "info": null,
-  "parent": "politics",
-  "print_name": "#### <Name of Entry>"
-}

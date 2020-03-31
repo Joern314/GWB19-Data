@@ -1,2 +1,0 @@
-## Cultures[politics]
-

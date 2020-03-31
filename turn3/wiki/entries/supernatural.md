@@ -1,2 +1,0 @@
-# The Supernatural[wiki]
-

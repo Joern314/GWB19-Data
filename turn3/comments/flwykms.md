@@ -1,7 +1,0 @@
-\[If you click onto the big blue banner at the top(if your on pc) or otherwise bring yourself to the main super thread for Godhood WB scrolling down should show you the turn threads in descending order of how recently they have been posted.
-
-You can generally tell when one thread closes by looking to see if the turn thread is locked, if it is the turn is over and the next turn is either already up or Joern is in the process of putting the next one up and it'll be open soon. Another way to tell is by hopping on the Discord, where Joern(the GM) will/should ping everyone a couple hours before turn change, as he is closing the turn and after the new turn goes up
-
-What happens here is somewhat similar to what happened on previous turns, you worldbuild and you interact with the other gods and their creation, the only difference is that unlike previous turns, you have to pay some acts to communicate with mortals either through Contact Mortals(2acts for one whole conversation/interaction) or create Prophet( 3 acts lasts for 4 turns). I believe the time skip between this turn and turn 2 is 8000 years, but that is a unique skip and wont be happening again(at least not to that degree)  and most most turns are relatively or entirely adjacent to each other in terms of time\]
-
-\[Any thing else you would like me to clarify further and or help with?\]
