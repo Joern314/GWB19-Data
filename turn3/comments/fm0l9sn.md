@@ -1,0 +1,3 @@
+Lyva's last dress had already been burned by the lava blade so she was ready to go, and worked patiently with him until she stood in a shimmering emerald gown, tailored to open with her hinges and seams like a second layer of skin.   
+
+She twirled in it, flitted around Gon and petted Nkom again, "It is the best thing I've ever worn, Master Nkom. Like the ocean in my skin. If you ever seek refuge you are welcome in my hoard. Not even lovely Livi is allowed there!"
