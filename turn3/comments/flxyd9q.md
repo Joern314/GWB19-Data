@@ -1,0 +1,9 @@
+ 
+
+The Forests and Jungles of Primus \[first continent\] were peopled over thousands of years with the descendants of maroons and escapees from the days of the Ras’shalas, an empire which faded in their memories, and became legend. This legend was warped by the humans and differed wildly from tribe to tribe, while the yashool tree-people, who lived longer, better preserved the oral legend of those days. 
+
+In this era, humans and yashool lived in separate tribes, rarely competing for the same resources, nor finding one another very pleasant to look at. However, they all shared a deep respect for the transformative power of dance. Secret societies stretched across tribes and across species to carry on these ancient ways. 
+
+The oldest of these was the Society of the Sting, those human and yashool who showed Fidelity to the scorpion. These were the men responsible for **eating the Unliving**, an unpleasant, but honored task to control their unbearable competition. In the forest, great respect was shown to the ravens for their supernatural intelligence. The most elite human and yashool were initiated into the Society of the Black Wing. They would make elaborate feathered costumes and beaked masks to dance Fidelity to the raven. In the jungle, the Bearcat was king because of its supernatural strength. The elite, human and yashool, in their respective tribes, joined the Society of the Whisker, fashioning costumes and dancing Fidelity to gain an increment of this physical power. Then there were dozens of other less popular societies, honoring every animal, fruit, and flower, with anywhere from dozens to hundreds of members. 
+
+\[[/u/Gwydion-Drys](https://www.reddit.com/u/Gwydion-Drys/) One of the ways the living cope with the Unliving. [/u/Horatius-Cocles](https://www.reddit.com/u/Horatius-Cocles/) I think our peoples will probably cross paths in the first continent’s forest. [/u/downsmi1](https://www.reddit.com/u/downsmi1/) Yashool lore.\]

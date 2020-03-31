@@ -1,0 +1,3 @@
+Oryllia smirked, saying, "Well, Azrakal and I had made a pact, and he commissioned me to craft a Hex for his great empire. I did so, and unfortunately, his empire didn't last long. But at least I have a tether now."
+
+At the mention of Sarah, there was a slight change in Oryllia's tone, from completely open to slightly bitter. "Well, I have had such a Hex on my mind for a long time, so I think there is a bit of misunderstanding in this. But, I will not deny that she was on my mind as well during the crafting of such a Hex. It's because she denied me to help her."

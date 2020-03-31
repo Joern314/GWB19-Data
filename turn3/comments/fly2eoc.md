@@ -1,0 +1,1 @@
+[Since the Apokryphs loiter around the entrances to the afterlife, which are everywhere and marked by crystalline trees, you will run into them virtually everywhere on the planet. Especially since they are the ones collecting the souls of the dead and herding them to the afterlife.]

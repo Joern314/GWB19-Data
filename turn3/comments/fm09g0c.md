@@ -1,0 +1,1 @@
+[yes I shall , I don’t know why I thought he was in shards, My mistake . My memory of the old games must be starting to meld together:p sorry :3 ]

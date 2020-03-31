@@ -1,0 +1,3 @@
+Lyva did truly seem to be more lethargic than usual, blocking and defending first, before duelling him, taking more interest in smashing the blades against each other. She was weaker than him, or if felt such at least, but when he scored a hit the blade barely scratched her skin.      
+
+Yet as the day passed, she grew faster and more aggressive, seeming less to use her muscles to propel the blade, and more get dragged by the weapon as she controlled its metal, darting and slashing at his openings.

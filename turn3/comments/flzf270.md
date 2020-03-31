@@ -1,0 +1,3 @@
+The worshipers of Malaphet commonly do so out of either fear or their ancestors being members of Malaphet's mad Cult during the days of The Empire that twisted the story to have Malaphet be a divine protector that tried to defend the people from three horrible monsters that sought to destroy all life. The mortals of these tribes lived a highly nomadic lifestyle, traveling alongside the rifts that legends claimed were formed by Malaphet in his fight against those three horrors. They dip into the surrounding environments for supplies or ease of travel before returning into the walls of the rift, fearing persecution for their beliefs by the other tribes.
+
+\[Prompt: Guiding the tribes\]

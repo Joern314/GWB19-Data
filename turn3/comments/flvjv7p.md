@@ -1,0 +1,3 @@
+"That little runt." Lyva tensed, only to lean into his touch and embrace him, her aluminium form feeling incredibly light as she relaxed.    
+"He's not my son. He shouldn't be claiming he is, he's.... he's like Oryllia and Sarah and Nadeline. He's a divinity born of this world's creation. He'd be far better looking than some mismatched beast if I made him."     
+She breathed, ruffled his feathers and smiled gently, "You've aged well too, my fierce Hunger. Speaking of, how do you feel about rewarding our patience with some pure alcohol, as you described it? Anyone Vengeance deems worthy of divine wrath?"

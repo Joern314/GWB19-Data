@@ -1,0 +1,5 @@
+Lyva took a deep breath in before yelping with delight, hugging Gon in surprise, and finally leaping off to examine the pile, utterly captivated.    
+
+"These are beautiful, incredible, shiny, precious, glorious, they're amazing- oh, oh, wait a second!" She grinned before hastily shrugging off her dress, and trying the mail shirts and robes on. Even as beautiful as the metallic goddess was, being swamped in clothes meant for a creature taller and broader than her looked odd and she burst into laughter at the sight.     
+
+"Hmhm, how do I look, my love? Heh, I think it needs a little less in the shoulders- oh sweet Nkom, do you think you could do something utterly priceless for me? If I stay a few days, could you fit these to my body, so I can show off your work properly?" She asked, stroking him vigorously as her sleeves flapped around.
