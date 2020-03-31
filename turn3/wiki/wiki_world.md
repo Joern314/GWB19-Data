@@ -32,7 +32,7 @@ A sixteen mile high mountain in the form of a Nkarlen down on one knee with his 
 
 ---
 
-### The Sea Spike [Landmarks]
+### The Sea Spike
 
 /u/Horatius-Cocles 
 
@@ -119,7 +119,7 @@ Currently barren.
 
 ---
 
-### Continent 1- Primus
+### The First Continent, Primus
 
 /u/Horatius-Cocles, /u/Plintstorm, /u/Rhaegar1994
 
