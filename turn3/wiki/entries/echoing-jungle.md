@@ -1,0 +1,16 @@
+#### The Echoing Jungle[the-first-continent-primus]
+
+Creator: Lyva, ( u/smcadam )
+
+[Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flytqr2/)
+
+The jungle across the north of the "human continent" is equatorial and warm throughout the year, though often racked by wild weather. It is largely made of huge trees sprawling 100-300 feet tall, with distinct layers of the canopy, and full of fruit, berries, herbs and edible plantlife that rapidly regrows. Thanks to the Hex of Darkness, the lower shadowy layers are almost perpetually screaming.
+
+The lowest levels of the forest feel almost underground, a labyrinth of roots like mangrove roots which hold vast troves of fungi. The Tralinhoof, a sinuous boneless species without ears or eyes dwells here and is the primary predator, operating almost entirely on smell. Thanks to thick hide and lack of hard tissue it is very resistant to the blasts of death, and hunts with surprising ferocity.
+
+The second level, on shelves of old matter on the roots themselves, is home to younger trees, bushes, shrubs and wrapped in twilight at best. Agile Nehreeans, six limbed spidery reptiles vault over the weak ground here and use a poisonous bite to bring prey down before outlasting them.
+
+The low canopy is home to the most life, much of it herbivourous and navigating using vast vines, thick branches, and huge webs. Monkeys, colourful birds, flying reptiles, snakes, lizards, sloths, tree pangolins and all manner of insects as well as mortal dwellers tend to roam in this realm. The webs are creations of Lightsnares, ghostly gigantic spiders that are somewhat transparent, and actually snare webs to impress and attract mates.
+
+The top layers of the canopy are bright and the most fruitful, though also the most volatile and dangerous on slender branches. Fireflies provide light here almost permanently, keeping the screams from sounding, and many species of sensitive bats, birds, flying serpent and tiny monkey like creatures roam here.
+
