@@ -1,4 +1,4 @@
-###The Forgotten[gods]
+### The Forgotten[gods]
 
 **Player**: /u/Abacadaren
 

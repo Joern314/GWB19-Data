@@ -1,4 +1,4 @@
-###Gon Gryn, Vengeance Reborn[gods]
+### Gon Gryn, Vengeance Reborn[gods]
 
 **Player**: /u/WHOSGOTYOURSKINNOW
 

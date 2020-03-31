@@ -1,4 +1,4 @@
-#### Nkan'gbamo[landmarks]
+### Nkan'gbamo[landmarks]
 
 [Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
 

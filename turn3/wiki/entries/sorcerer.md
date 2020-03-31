@@ -1,12 +1,14 @@
 ###The Sorcerer[gods]
 
-/u/Gwydion-Drys
+/u/Gwydion-Drys 
+
+[Turn 1](https://old.reddit.com/r/GodhoodWB/comments/fo2h2r/game_19_endless_pantheon_applications/flcurqi/)
 
 **Spheres:** Magic and Death
 
 **Appearance:** The Sorcerer is humanoid in appearance. What distinguishes him from a normal human however is his grey skin, which is covered in tattoos and runic markings, retelling his life story to those who can interpret them.
 
-He is normally clothed in splendorous traveling clothes and wears a hooded cloak. His eyes are representative of a dark night sky filled with stars.
+He is normally clothed in splendours travelling clothes and wears a hooded cloak. His eyes are representative of a dark night sky filled with stars.
 
 **Plans and Style:** Magic, Death and the Afterlife are linked. Expect to see as much in-game.
 

@@ -1,4 +1,4 @@
-#### The Shattered Mountains (Segbiggolod Linenko)[landmarks]
+### The Shattered Mountains (Segbiggolod Linenko)[landmarks]
 
 [Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
 

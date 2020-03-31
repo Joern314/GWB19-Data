@@ -1,4 +1,4 @@
-#### Skaal'gbaldol, the Sky Holder[landmarks]
+### Skaal'gbaldol, the Sky Holder[landmarks]
 
 [Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
 

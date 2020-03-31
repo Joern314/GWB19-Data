@@ -1,4 +1,4 @@
-###Tsukumogami, or Familial Bonding[metaphysics]
+### Tsukumogami, or Familial Bonding[metaphysics]
 
 **Creator**: /u/Abacadaren
 

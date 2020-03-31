@@ -1,4 +1,4 @@
-###Olasea[minor-gods]
+### Olasea[minor-gods]
 
 **Player**: /u/WHOSGOTYOURSKINNOW
 

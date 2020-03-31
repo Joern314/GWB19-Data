@@ -1,4 +1,4 @@
-###Oryllia, the Witch-Queen[gods]
+### Oryllia, the Witch-Queen[gods]
 
 **Player**: /u/DragoneyeCreations
 

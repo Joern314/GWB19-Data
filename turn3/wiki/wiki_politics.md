@@ -43,13 +43,6 @@ Rift Keeper society largely follows the conventions laid out by the Sorcerer for
 
 ---
 
-### Humans
-
-**Description**: “All his life he tried to be a good person. Many times, however, he failed.
-For after all, he was only human. He wasn't a dog.” - *Charles M. Schulz*
-
----
-
 ### The Apokryph
 
 /u/Gwydion-Drys 

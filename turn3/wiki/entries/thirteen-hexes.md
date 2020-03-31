@@ -1,4 +1,4 @@
-###The Thirteen Hexes[metaphysics]
+### The Thirteen Hexes[metaphysics]
 
 **Creator**: Oryllia(/u/DragoneyeCreations)
 

@@ -1,4 +1,4 @@
-###The Retaliator[artifacts]
+### The Retaliator[artifacts]
 
 **Creator**: ??? ( /u/WHOSGOTYOURSKINNOW ) 
 

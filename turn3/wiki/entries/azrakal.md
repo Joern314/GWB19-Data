@@ -1,4 +1,4 @@
-###Azrakal[gods]
+### Azrakal[gods]
 
 **Appearance**: A flayed man with little cloths.  
 Previously: A human male with black tattoos over almost his entire body. No hair and wears simple cloths that covers very little of him.  

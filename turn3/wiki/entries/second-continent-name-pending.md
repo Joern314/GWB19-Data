@@ -1,4 +1,4 @@
-#### The Second Continent (Name pending)[regions]
+### The Second Continent (Name pending)[regions]
 
 [Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
 

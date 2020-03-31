@@ -1,2 +1,2 @@
-## Regions[the-world]
+## Regions[landmarks]
 

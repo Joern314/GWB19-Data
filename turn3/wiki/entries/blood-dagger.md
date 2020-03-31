@@ -1,4 +1,4 @@
-###The Blood Dagger[artifacts]
+### The Blood Dagger[artifacts]
 
 **Creator**: Azrakal (/u/Plintstorm ) 
 

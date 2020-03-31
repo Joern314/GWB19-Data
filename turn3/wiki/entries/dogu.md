@@ -1,4 +1,4 @@
-###Dogu[minor-gods]
+### Dogu[minor-gods]
 
 **Player**: /u/Abacadaren
 
