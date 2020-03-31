@@ -1,0 +1,1 @@
+[Both the prompts and a contact mortals.](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flzevuj?utm_source=share&utm_medium=web2x)

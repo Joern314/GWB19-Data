@@ -1,0 +1,3 @@
+Lyva crashed into it and was impaled, the blade burning through her clothes, smouldering iron so it melted around her stomach where she opened a hatch into her inventory. Of course such meant that she had to keep going, slammed into him, and wrapped her arms and tails tight around Gon as she yelled past him.   
+
+"LIVI! I just got these robes, no fair!" She pouted, headbutted Gon hard, and closed her hatch to try and trap his sword arm in the Iron portal of her stomach. "Guess that's you spared one set of robes darling. Why not try and wreck all my new wardrobe and see how I react?"

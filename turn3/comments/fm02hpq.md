@@ -1,0 +1,1 @@
+[The Outsider wasn't in the Shards. The Outsider was in the Illuminated Planes, Taiyochusin, Porky Pig and Elder Tales. I am not sure they ever actually met. Do you want to edit?]

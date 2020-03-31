@@ -1,0 +1,5 @@
+Lyva's avatar looked much as ever, though some sheets of aluminium had been moulded to resemble feathers as if to honour him, and a deeper confidence settled in her eyes. A confidence that immediately evaporated at his words.     
+
+"I didn't want to get up, I may have given Livi some extra work when I left, but the core's so comfy, it was like lying in my hoar- What!?" She squeaked, tail slamming against the wall.   
+
+"Who sai- I don't have a sun. I don't have a son. What? No, who told you that? Believe me, love, if I was having an egg, you would know about it and I would be extricating as many gems and wonders from you as I could." She forced a nervous smile, tapping her jewellery fondly, "I'm not a mother, where did you get that? Come on, I'm too young, I'm only... like... eight thousand now. Oh my stars I'm *ancient*."

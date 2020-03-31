@@ -1,0 +1,1 @@
+"I don't care." Lyva grumbled to herself, turned and slithered back to her planet. If the gargantuan serpent was such a slave to her spheres that she still hadn't managed to reproduce, that was her foolish error, not Lyva's. At least, she told herself such.

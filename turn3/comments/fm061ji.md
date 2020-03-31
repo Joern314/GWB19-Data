@@ -1,0 +1,7 @@
+Lyva decided to add life to the kiln islands once more, ~~creating a vibrant ecosystem built on the volcanic ash of the islands eruption. Trees growing here were tough and hardy, grass was thick, and she added peaceful creatures like  kiwis, oxen, horses, goats, apes and many species of birds and snakes across the hills. In the shallow waters, large amphibious geckos as big as horses roamed, and many bright tropical insects.~~     
+
+Amidst them, she added a more experimental creature, the **Vanilin**, a large scaled warm blooded creature with extremely tough jaws to scrape at metal, and the ability to work said metals into its scales, like a huge pangolin. Hunting such creatures would help those who would dwell here to use the metallic scales for their own ends, or could even potentially farm the creature.      
+
+She also forged a new metal in the eruption that was found across the islands and further afield thanks to some projectiles of the volcano. **Kindlscal** was a metal influenced by divine energy to glow and shed light constantly at room temperatures, helping to banish the screams of the night at terrified mortals.   
+
+[Beautiful Creatures: 3 Act Metal-Eating Blessing for Vanilin, 2 Act Light Blessing for Kindlscal,]

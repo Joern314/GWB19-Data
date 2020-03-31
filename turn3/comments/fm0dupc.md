@@ -1,0 +1,3 @@
+"Thankyou dear," Lyva said sweetly, and was left grappling and hugging Gon, her clothes equally destroyed. She seemed to set and kiss his back, reforming into resilient immutable tungsten, and carefully produced an emerald gown from her back to try and wrestle him into. Of course, having a hand lodged inside her stomach made this rather difficult and she regretfully released him, relying on her additional tail to grant her enough limbs to outmanoeuvre him.    
+
+"Come on, noone said you had to wear it for long, just for Nkom to see. And did you tell her to start calling us parents? Or did she pick that up alone?"

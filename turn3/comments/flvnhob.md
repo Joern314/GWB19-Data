@@ -1,0 +1,3 @@
+"I just woke up, I barely know who's around. I know they're a bunch of primitives hitting rocks together with no idea of proper materials." She lay her head in the crook of his neck as she thought, "And there's some new... new little Earth mortals? Oh Gon you made... Knarlen? They're lovely, congratulations!"    
+
+Surprisingly given the vast difference in appearance between silver goddess and goblin, Lyva seemed genuine and squeezed him proudly. "That's awesome! Not that I want to eat them, I can wait for someone heinous to die, or some of Azrakels minions. Do they still exist? Or have they sacrificed themselves to... hmm no I can't eat them that would be stealing."
