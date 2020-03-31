@@ -1,4 +1,4 @@
-#### The Great Salt[continent-1-primus]
+#### The Great Salt[the-first-continent-primus]
 
 Creator: Lyva and Knave, ( u/smcadam and u/Makator)
 

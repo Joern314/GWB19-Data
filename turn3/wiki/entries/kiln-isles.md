@@ -1,4 +1,4 @@
-#### The Kiln Isles[continent-1-primus]
+#### The Kiln Isles[the-first-continent-primus]
 
 Creator: Lyva, ( u/smcadam )
 

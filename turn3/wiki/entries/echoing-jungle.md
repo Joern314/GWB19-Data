@@ -1,4 +1,4 @@
-#### The Echoing Jungle[continent-1-primus]
+#### The Echoing Jungle[the-first-continent-primus]
 
 Creator: Lyva, ( u/smcadam )
 
