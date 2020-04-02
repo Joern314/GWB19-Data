@@ -2,9 +2,39 @@
 
 ## Celestial Bodies
 
+###The Arrow
+
+/u/Horatius-Cocles
+
+[Turn 4](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm4xmn7/)
+
+Among the people of the Hunting Grounds the story of a very special young boy is often told. He bragged to his friends that he could shoot his arrows farther than them, farther than their fathers and farther even than the hunters of the tribes, who were known to be the best shots on Primus.
+
+The boy's friends were fed up with his bragging and demanded for him to show them. The boy couldn't however resist bragging one last time and let his friends pick where to shoot. And they to teach him a lesson wanted him to shoot the sky itself. 
+
+The boy was not perturbed. He knew he could not possibly reach the sky with an arrow, but giving up without even trying seemed pathetic to him. And so he climbed a tall tree to improve his odds. He took aim and fired. And to the astonishment of the boy and his friends the arrow turned into a streak of silver and in the heavens stars appeared in the shape of an Arrow.
+
+###The Gates
+
+/u/Gwydion-Drys
+
+[Turn 4](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm5s8wo/)
+
+To commemorate the founding of Epoidos the mages of the city performed an ancient ritual, given to them by the Sorcerer. And so there in the sky a constellation in the form of two gates appeared symbolizing the White Gates of Epoidos.
+
+###Segil'reld, The Great Bird
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm41c3f/)
+
+Seven bright stars, all with a green and purple hue marked the beak, wing tips, two legs, the end of the tail feathers, and one at the heart of the being, were filled in with duller stars to complete the image. All glistened like bright jewels in the heavens and the beak of the great bird was anchored above the Temple-Caves of Nkan'gbamo. It would be said that the bird always flew home.
+
 ## Landmarks
 
 ### Nkan'gbamo
+
+/u/WHOSGOTYOURSKINNOW
 
 [Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
 
@@ -14,11 +44,13 @@ Temple-caves with large square passages, rooms, and stairs underneath The Shatte
 
 /u/Horatius-Cocles 
 
-[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flum9pd/)
+[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flum9pd/)
 
 In good view of both continents the single highest mountain of the world made purely of obsidian rises high above the ocean surface into the clouds. It is called the Sea Spike.
 
 ### The Shattered Mountains (Segbiggolod Linenko)
+
+/u/WHOSGOTYOURSKINNOW
 
 [Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
 
@@ -26,11 +58,59 @@ Dropped on the second continent by Gon during its creation, The mountain range i
 
 ### Skaal'gbaldol, the Sky Holder
 
+/u/Rhaegar1994
+
 [Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
 
 A sixteen mile high mountain in the form of a Nkarlen down on one knee with his hands up like he is holding up the sky. The source of many legends; he is rumoured to have been the first goblin hero.
 
+### Nkloig Sekzil, The Mouth of Creation
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu8tjs/)
+
+A deep crevice where the goblins are said to have crawled out from. Home to a large number of Ranos priests and serves as Gon's holy land (influence is measured by the percent of the population that lives underground.)
+
+###The Empty Temple
+
+/u/horatius-cocles, /u/Gwydion-Drys
+
+[Turn 4](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm4xmn7/)
+
+After the disappearance of the gods, the fall of the old empires and the end of the era of legend and myth some mortals were glad to be rid of the disturbance the gods represented to the world. Some people however missed the gods and the more colorful advanced world they represented. 
+
+Among them were a group of Apokryph and humans in the Hunting Grounds, who wanted to convince their gods to return. And that marked the begin of the construction of the Empty Temple.
+
+Meant to be a temple to the gods like many stories of old talk about, the Empty Temple started out as a hut. A luxurious hut, but a hut nontheless. For the mortals it would have been a splendid home, but to the gods it was not. 
+
+Crude boulders, rocks, planks of wood, hides of animals, gems and whatever else the mortals could conceive of as building materials were used to enlargen, enrich and spruce up the empty temple. It was all in all a try to bribe the gods into returning. 
+
+And even when the gods finally did return after millenia they still did not pay attention to the Empty Temple. For all it was it was still just a hut after all. And so the Apokryph and humans keep building and changing the Empty Temple, year after year, day after day, doomed to never be finished.
+
+The Empty Temple is situated on a hill near Sanctuary. Its internal structures are comprised of megaliths, which serve as the bones of the structure. The backroom serves as a small workshop where primitive statues of the gods are hewn from flint and limestone.
+
+At the entrance figures maybe depicting the Sorcerer and Rictus can be found, but due to the age of the statues and the crudeity of the fabrication it is hard to tell.
+
+Inside the main room two pits serve as sacrifice pits to burn offerings to the god in.
+
+As it is meant to serve as a home to the gods many furs, seats and primitive tables can be found within the side rooms as well as sleeping and fire places. There are no walls per se, but with wooden struts and sticks connected to the megaliths a framework for walls is formed. The "walls" themselves consist of furs, dried foliage and wicker.
+
+The "walls" are painted in primitive colors, mostly depicting mythological scenarios, like the creation of humans and Apokryph, the laying of Azrakal, Rak being dragged to death by the Sorcerer or the first Iron Judge sentencing Ras, the blood emperor.
+
 ## Lifeforms
+
+### Blood Hunter
+
+Description: Highly dangerous, intelligent, cruel, strong and bloodthirsty creature. Lives in the Savage Jungle.
+
+### Hoarding Crab (Nkelims'kzelir)
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flymgvg/)
+
+These strange hermit like crabs had exoskeletons of gray and brown that match the colors of the caves, but the back half of their body glows intensely and the gather up jewels and slowly craft them into shell like houses with mud and muck that when they occupy them causes them to glow through all the embedded colors like some crazy light show. These little creatures will take jewels from anywhere they can get them, including jewelry. If one manages to find one of their little nest holes, there is almost always a deposit of all kinds of jewels there.
 
 ### Magic Eater Fungus
 
@@ -51,6 +131,7 @@ A small symbiotic fungus living by eating magic. It lives in predators and eats 
 If an individual mortal is able to fend off this wolf-like creature it takes gooey form and tries to bond itself to the person. The bonding process acts like sickness and kills the host through ensuing fever and auto-immune reactions. In 1 out of 10 cases however, the Nightwalker forms a symbiotic relationship with the host.
 
 The bond with the Nightwalker endows it's with a sense of echolocation, though interpreting the new sensory input takes time and experience. The immune system of the host is also strengthened somewhat after fighting off the infection like the bonding process and their blood turns slightly acidic.
+
 
 ### Rift Tree
 
@@ -82,14 +163,6 @@ Description: A glowing metal that is quite easy to work, and constantly sheds wa
 
 ## Regions
 
-### Continent 1- Primus
-
-/u/Horatius-Cocles, /u/Plintstorm, /u/Rhaegar1994
-
- [Turn 1](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flh8ujk/)
-
-Created at the dawn of time by Rictus, Azrakal, Prismari and Kain. It holds the Hunting Grounds of Rictus, the Blood Planes of Azrakal and an statue of a colossal man by Prismari and many other places.
-
 ### The First Continent, Primus
 
 /u/Horatius-Cocles, /u/Plintstorm, /u/Rhaegar1994
@@ -97,6 +170,13 @@ Created at the dawn of time by Rictus, Azrakal, Prismari and Kain. It holds the 
  [Turn 1](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flh8ujk/)
 
 Created at the dawn of time by Rictus, Azrakal, Prismari and Kain. It holds the Hunting Grounds of Rictus, the Blood Planes of Azrakal and an statue of a colossal man by Prismari and many other places.
+
+#### Blood Plains
+
+Description: [Explained here](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fluhzvi/), a plain that is colored red.  
+Plenty of deer to hunt and some wild horses. A drug grows there.  
+Food: Meat, fruit  
+Resources: Drug, Horses, Sap
 
 #### The Echoing Jungle
 
@@ -154,4 +234,10 @@ A volcanic archipelago of Islands off the northern coast of Primus, created by L
 
 A large continent with formed by the gods Gon Gryn, Prismari, and Sunda far across the sea from the first continent. It contains an inland sea and white sand beaches on the western side with rocky coasts on the west. A mountain range runs along the eastern side, from when it was dropped there by the earth god. These mountains are rich in jewels. It has not received a proper name, but Gon calls it "Reloik'lakzek" which means "The Land of Broken Stones."
 
-Currently barren.
+Currently home to the Savage Jungle, Green Grass, and the Shattered Mountains
+
+#### The Savage Jungle
+
+Description: A jungle filled with danger, large reptilian like creatures.  
+Food: Meat, Fruit, Crop  
+Resources: lumber, scales, plant fiber, exotic/dangerous animals

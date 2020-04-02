@@ -2,11 +2,7 @@
 
 ## Avatars
 
----
-
 ## Demigods
-
----
 
 ## Gods
 
@@ -22,8 +18,6 @@ Previously: A human male with black tattoos over almost his entire body. No hair
 **Origin**: Born from a divine drop of blood.
 
 **Further explanation**:
-
----
 
 ### The Forgotten
 
@@ -45,8 +39,6 @@ Lost things here in refers to second death style things, lost to the point no on
 
 Sentiment refers to connection and emotion, like love or care (though it can be negative sentiments). The feelings one has towards a favorite stuffed animal, or the love for a family member.
 
----
-
 ### Gon Gryn, Vengeance Reborn
 
 **Player**: /u/WHOSGOTYOURSKINNOW
@@ -66,7 +58,21 @@ Gon was a semi-divine being created partially from the soul fragment of a god wi
 
 Divinity itself, however, has a price; as he traveled with Lyva, Gon was able to modify the so-called “Toneyl Divinity Manipulation Magic” developed by Hylatka and create a divine spark by siphoning the power of souls consumed by his blade into himself. Unfortunately, this seems to have had some side effects…
 
----
+### Kain marson and Prismari
+
+**Player** /u/Rhaegar1994 
+
+**Appearance**: kain marson: an ageing god who looks to be in his mid-thirties who a slander face with short strawberry blonde stubble along with long unkept strawberry blonde hair. He is normally always smirking . Kain wears what once was a long white robes with intricate red and black embroidery that has faded to grey and stained with void like patches. His robe is armless To show off his unique arms that appear to be made of shadows for his left and light for his right from far away, but upon closer inspection the arm made of "shadow" is truly made of storm clouds and the one made of "light is truly made of a ice cold mist.
+
+Prismari: in his natural form Prismari look is an ever shifting blob or ball of colour. But his favourite form would be  that of an androgynous human with prismatic eyes and long rainbow hair that was about the age of eighteen. With a  cloak that has hints of colour but mostly has fade from traveling the void and is just  now black. Shockingly enough when compared to kain one could almost see a familial resemblance 
+
+**Spheres**: storm and heroes 
+
+**Plans and Style**: for my plans I shall be making some sort of hero based metaphysic, Along with a adventurer/ hero’s guild to possibly be my main source of worship . As for storm related stuff. I’ll likely make a metaphysic for it as well as an eternal storm or something a long the lines. 
+
+**Origin**: kain a father whom lost his child and searched the multiverses, he finally found the lost child only to lose him as he left with a lady friend. But as luck would have it seemed prismari and lyva where separated some how well traveling the void and was rescued by his father refused to tell the child they where family but offered to help track down lyva and teach the godling a thing or two along the way 
+
+- - -
 
 ### Lyva
 
@@ -78,8 +84,6 @@ Divinity itself, however, has a price; as he traveled with Lyva, Gon was able to
 She normally flaunts her wealth by wearing a vast diversity of jewellery and dresses. She can shapeshift, normally changing what metal she seems composed of, or turning into a metallic asian style dragon occasionally.      
 
 **Origin**: Lyva was originally “born” in a divine accident, from another deities greed breaking off. She’s tempered a little bit by wisdom and cunning since her birth, but fundamentally just wants everything. She quickly acquired adoptive parents, friends and lovers, and used them to ascend to full godhood, before leaving to claim her own planet.
-
----
 
 ### Oryllia, the Witch-Queen
 
@@ -95,11 +99,7 @@ She normally flaunts her wealth by wearing a vast diversity of jewellery and dre
 
 **Further Explanation**: Oryllia is an evil aligned god, so expect plenty of chaos to come from her. It’ll be a mix of simple tricks and horrendous evil.
 
----
-
 ### Rictus
-
-Info: /u/Horatius-Cocles [Turn 1](https://old.reddit.com/r/GodhoodWB/comments/fo2h2r/game_19_endless_pantheon_applications/fldx9eb/)
 
 **Spheres**: Law and Hunt
 
@@ -129,9 +129,7 @@ He left his homeworld after an apocalyptic war against a god called the Shadow. 
 
 Wherever Rictus turned those bent on unjust destruction and domination seemed to abound. And with the world safe once more he decided to strike out and do what he did best, bring the law to protect people and hunt down those who broke it.
 
----
-
-###The Sorcerer
+### The Sorcerer
 
 /u/Gwydion-Drys 
 
@@ -149,8 +147,6 @@ He is normally clothed in splendours travelling clothes and wears a hooded cloak
 
 **Further Explanation:** The Sorcerer was once an idealistic youth trying to follow in his patron's footsteps to be a force of good. Repeated betrayals by his closest allies have made him pragmatic and weary and have shifted his focus from looking out for everyone to looking out for his people.
 
----
-
 ### Sunda
 
 /u/StarOfTheSouth
@@ -165,27 +161,11 @@ He is normally clothed in splendours travelling clothes and wears a hooded cloak
 
 **Further Explanation:** Not really sure what needs to be elaborated on, as I'm mostly just planning on doing character stuff this game. No big plans from me.
 
----
-
-### Kain marson and Prismari 
-
-**Player** /u/Rhaegar1994 
-
-**Appearance**: kain marson: an ageing god who looks to be in his mid-thirties who a slander face with short strawberry blonde stubble along with long unkept strawberry blonde hair. He is normally always smirking . Kain wears what once was a long white robes with intricate red and black embroidery that has faded to grey and stained with void like patches. His robe is armless To show off his unique arms that appear to be made of shadows for his left and light for his right from far away, but upon closer inspection the arm made of "shadow" is truly made of storm clouds and the one made of "light is truly made of a ice cold mist.
-
-Prismari: in his natural form Prismari look is an ever shifting blob or ball of colour. But his favourite form would be  that of an androgynous human with prismatic eyes and long rainbow hair that was about the age of eighteen. With a  cloak that has hints of colour but mostly has fade from traveling the void and is just  now black. Shockingly enough when compared to kain one could almost see a familial resemblance 
-
-
-**Spheres**: storm and heroes 
-
-
-**Plans and Style**: for my plans I shall be making some sort of hero based metaphysic, Along with a adventurer/ hero’s guild to possibly be my main source of worship . As for storm related stuff. I’ll likely make a metaphysic for it as well as an eternal storm or something a long the lines. 
-
-**Origin**: kain a father whom lost his child and searched the multiverses, he finally found the lost child only to lose him as he left with a lady friend. But as luck would have it seemed prismari and lyva where separated some how well traveling the void and was rescued by his father refused to tell the child they where family but offered to help track down lyva and teach the godling a thing or two along the way 
-
-- - - 
-
 ## Minor Gods
+
+### Sarash
+
+Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
 
 ### Dogu
 
@@ -197,7 +177,25 @@ Prismari: in his natural form Prismari look is an ever shifting blob or ball of 
 
 **Description**: An old Clay doll with faded pigmentation, Dogu was the first lost thing within the new world. She took it upon herself to help the other lostlings, and reminds those who care about their things to take care and maintain them.
 
----
+### Ferrick
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqg9lg/)
+
+**Sphere**: Corrosion
+
+**Appearance**: A rotten amber gargoyle who sees to it that oxidization, rust and corrosion work properly.
+
+### Igali
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
+
+**Sphere**: Inspiration
+
+**Appearance**: A small golden dragon who glows bright like a lightbulb when he has an idea. He was remade from the remains of a minor God of paranoia.
 
 ### Kzivo
 
@@ -212,7 +210,15 @@ Kzivo appears as a large limestone man with stalactites coming off his arms and 
 
 His exact origins are unknown; Gon Gryn awoke one day to find him simply working on expanding the caves in the shattered mountains. It is his job. Apparently he is the brother of Olasea, Minor Goddess of Erosion.
 
----
+### Leyanna
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
+
+**Sphere**: Accounting
+
+**Appearance**: A half serpentine naga woman with abacus beads as her scales. Leyanna was created from within Lyva's essence to serve as her assistant, and keeps track of all of Lyva's hoard and treasures.
 
 ### Olasea
 
@@ -227,8 +233,6 @@ Olasea appears as a very energetic young girl made of perfectly smooth granite w
 
 She can most often be found on mountain tops, sanding away rough edges, breaking apart stones with a hammer, and causing rock slides. After trying to break Gon Gryn in their first encounter she began considering him the "big boss" who provides her with all of her work. Apparently she is the sister of Kzivo, Minor God of Caves.
 
----
-
 ### Panoptes
 
 /u/Gwydion-Drys  
@@ -240,7 +244,15 @@ Panoptes is a tall figure. Almost human. It just has hundreds of eyes all over i
 
 Panoptes would look out into the Rift and the world and keep track of mortal lives and lifespans. He would record the deeds of the living and steer them towards an afterlife in the Endless Woods or Oneiros depending on their deeds. And he would dispatch the Rift Keepers living in Oneiros to collect the souls of the living back to the Rift.
 
----
+### Pyrephas
+
+**Creator**: Lyva ( /u/smcadam )
+
+**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
+
+**Sphere**: Combustion
+
+**Appearance**: A blazing demonic figure in charge of keeping fires burning. He was forged from a mortal Lyva shoved in a volcano.
 
 ### Radamanthys
 
@@ -252,7 +264,17 @@ A human-like bearded minor god. He is the Judge of Judges. Deliberating on who w
 
 And upon finding such a person and establishing that their city, nation, region or even general area was in need of the protection of the Iron Law, that person would be granted the powers of an Iron Judge.
 
----
+### Reva
+
+Creator: kain ? 
+
+**Created**: [turn 2 ](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fln80av/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
+
+**sphere**: rain 
+
+**Description**:  Reva has long flowing blue hair. She wears a grey and blue dress and she seemed to be carry  some sort of large wineskin which help create rain 
+
+- - -
 
 ### Rhelii the Reaper/"Miss Fortune"
 
@@ -264,48 +286,9 @@ And upon finding such a person and establishing that their city, nation, region 
 
 **Appearance**: Rhelii appears as an amber-skinned giantess with long braided and dreaded hair, colored black.   
 
-**Origins**: Once a blighted mortal who wandered the earth in fruitless pursuits, Rhelii now serves within the Hexforge, tending to the Witch Gardens, where the resources for Oryllia's dark concoctions are made. She is responsible for sewing the misfortunes of mortals within the flora of the garden.             
+**Origins**: Once a blighted mortal who wandered the earth in fruitless pursuits, Rhelii now serves within the Hexforge, tending to the Witch Gardens, where the resources for Oryllia's dark concoctions are made. She is responsible for sewing the misfortunes of mortals within the flora of the garden.
 
----
-
-###Leyanna
-
-**Creator**: Lyva ( /u/smcadam )
-
-**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
-
-**Sphere**: Accounting
-
-**Appearance**: A half serpentine naga woman with abacus beads as her scales. Leyanna was created from within Lyva's essence to serve as her assistant, and keeps track of all of Lyva's hoard and treasures.    
-    
-
----
-
-###Pyrephas
-
-**Creator**: Lyva ( /u/smcadam )
-
-**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
-
-**Sphere**: Combustion
-
-**Appearance**: A blazing demonic figure in charge of keeping fires burning. He was forged from a mortal Lyva shoved in a volcano.       
-
----
-
-###Igali
-
-**Creator**: Lyva ( /u/smcadam )
-
-**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)
-
-**Sphere**: Inspiration
-
-**Appearance**: A small golden dragon who glows bright like a lightbulb when he has an idea. He was remade from the remains of a minor God of paranoia.     
-
----
-
-###The Sisters of Worship, Yinquel, Chantra and Vesper
+### The Sisters of Worship, Yinquel, Chantra and Vesper
 
 **Creator**: Lyva ( /u/smcadam )
 
@@ -313,26 +296,9 @@ And upon finding such a person and establishing that their city, nation, region 
 
 **Sphere**: Prayer, Praise and Worship
 
-**Appearance**: The three sisters were created to help Lyva collect her worship and hear her followers better. Vesper, of Prayer, is mouthless but has many ears across her body. Chantra of Praise has three faces and many mouths to sing with. Yinquel, of Worship, is action oriented and has six arms to work with.     
+**Appearance**: The three sisters were created to help Lyva collect her worship and hear her followers better. Vesper, of Prayer, is mouthless but has many ears across her body. Chantra of Praise has three faces and many mouths to sing with. Yinquel, of Worship, is action oriented and has six arms to work with.
 
----
-
-###Ferrick
-
-**Creator**: Lyva ( /u/smcadam )
-
-**Created**: [Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqg9lg/)
-
-**Sphere**: Corrosion
-
-**Appearance**: A rotten amber gargoyle who sees to it that oxidization, rust and corrosion work properly. 
- 
-   
-   
-
----
-
-### Tondra 
+### Tondra
 
 Creator: kain ? 
 
@@ -342,30 +308,12 @@ Creator: kain ?
 
 **Description**: tondra is a minor divine Who wears storm grey attire that resembled a dress along with short curly yellow hair. who  carriers around a large drum which she beats to make thunder 
 
-- - - 
+### The Lizard
 
-### Reva 
+A yellow-black lizard who *might* be very powerful and dangerous. Speaks like some kind of narrator. Was killed and eaten by Lyva.
 
-Creator: kain ? 
-
-**Created**: [turn 2 ](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fln80av/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 
-
-**sphere**: rain 
-
-**Description**:  Reva has long flowing blue hair. She wears a grey and blue dress and she seemed to be carry  some sort of large wineskin which help create rain 
-
-
-
-- - - 
+- - -
 
 ## Servitors
 
----
-
 ## Unknown
-
-#### The Lizard
-
-A yellow-black lizard who *might* be very powerful and dangerous. Speaks like some kind of narrator.
-
----

@@ -2,8 +2,6 @@
 
 ## Artifacts
 
----
-
 ### The Blood Dagger
 
 **Creator**: Azrakal (/u/Plintstorm ) 
@@ -11,8 +9,6 @@
 **Created**: [Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flgrobm/)
 
 **Description**: A dagger forged with the scales of Lyva and the Blood of Azrakal. The Dagger absorbs blood, including that inside the people it stab.
-
----
 
 ### The Retaliator
 
@@ -27,15 +23,13 @@ The Retaliator was sword of divine creation that Gon brought along with him from
 
 **Blessings**: 0 (The blade exists as a part of Gon's divine form only, for now.)
 
----
-
 ## Divine Law
-
----
 
 ## Magics
 
----
+### Blood Storage
+
+Description: Magic used to store magics in blood. Stores magic for 1 year and 1 day.
 
 ### Magic Arrows
 
@@ -45,11 +39,13 @@ The Retaliator was sword of divine creation that Gon brought along with him from
 
 Magical Arrows who can absorb magical energies upon killing something, so it does not explode. Magical energy is stored in the arrow until discharged. This is a secret magic and does not become general knowledge. Can only be learned by bargaining with Rictus or buying it directly for 3 acts + 2 acts for secrecy.
 
----
-
 ## Metaphysics
 
----
+### Power of Blood
+
+Description: Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
+Power is just not strength, but also a general meaning of power. Kings blood makes for good king in several aspect.  
+Blood can also be applied to people and objects to increase their power temporarily.
 
 ### Fidelity
 
@@ -63,9 +59,7 @@ Magical Arrows who can absorb magical energies upon killing something, so it doe
 Every thing has a core essence. This essence can be perceived by the outward characteristics of a thing. Creatures can change their own core essence by dancing in a way that mimics the core essence of another thing. This is called showing fidelity. By showing fidelity to a thing one adopts a thing’s outward characteristics to a limited degree.
 For example, a mortal looking to become tougher may show fidelity to a boulder. From observing the boulder they invent a boulder dance that captures the essence of boulders. Then the mortal practices this boulder dance for years; his skin grows tough and he is able to withstand strikes with greater resistance. In the same way, a fox dance may make someone stealthier, the gazelle dance may make someone more beautiful, the fruit dance may make someone more fertile.
 
----
-
-###Life after Death
+### Life after Death
 
 /u/Gwydion-Drys 
 
@@ -91,8 +85,6 @@ Unclaimed souls and those claimed by the Sorcerer are after death escorted to th
 
 The Unliving yearn to sate all their animal desires including food, sleep and sex at all costs. They are however biologically mortal and produce mortal children.
 
----
-
 ### The Thirteen Hexes
 
 **Creator**: Oryllia(/u/DragoneyeCreations)
@@ -104,8 +96,6 @@ The Unliving yearn to sate all their animal desires including food, sleep and se
 #### Hex 1 - The Soil Shrieks
 
 Every time a region of the world is covered in darkness, the air is filled with bloodcurdling screams.
-
----
 
 ### Tsukumogami, or Familial Bonding
 
@@ -124,11 +114,7 @@ Years Owned | Power
 
 Of note, hero artifacts are spawned from a soul and as such aren't fully inanimate objects to be affected by this metaphysics, but things like artifacts can be
 
----
-
 ## Miracles
-
----
 
 ### The Iron Law
 
@@ -173,15 +159,9 @@ These powers can be revoked by an Iron Inquisitor or withdrawn by the miracle it
 
 The strain put on Lawbringers is the same or even greater as that put on Judges, when they bend reality.
 
----
-
-##Planes
-
----
+## Planes
 
 ### The Rift
-
-Info: /u/Gwydion-Drys [Turn 1](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flgku2r/)
 
 **Creator**: The Sorcerer
 
@@ -213,12 +193,10 @@ While people not privy to the secrets of mastering the Rift Woods and the Rift w
 
 Upon significant events in the material world, like the founding of an important city, a battle or the creation of an especially holy sight etc., a similar location will come into existence in a corresponding place in the Rift. Negative events like battles or especially grisly murders spawn a place haunted by the deepest and darkest horrors of the Rift. While positive events like an especially heroic act or similar things will create one of the rare sanctuaries of the Rift. Here mortals and other beings wandering the Rift can find a safe haven for a short while. As with all places in the Rift, these suffer from volatile topography and shifting surroundings as well. Unless guided by someone in the know it is highly unlikely for people to come out of the Rift in one piece.
 
-####Locations in the Rift
+#### Locations in the Rift
 
 **Oneiros, the City of Sleep**: At the center of the plane, suspended in mid air, hovers a white city, Oneiros, the city of sleep. Here those who have earned a reward, dream away the time. It is also the primary home of the Apokryph in the Rift.
 
 **Endless Woods**: A woodland haunted by those deemed unworthy to enter Oneiros. It is overrun by the nightmares of the Damned, who are forced to prey on each other for eternity. The topography and geography is permanently shifting and the Woods are shrouded in near complete darkness.
 
 **Rift Woods**: Patches of crystalline tree like structures that grow in wooded areas on land or coral reefs under water. They can be found in the material plane and the Rift. These patches of crystalline woods mark the entrances/exits of the Rift.
-
----

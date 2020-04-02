@@ -1,0 +1,3 @@
+The Outsider truly had carried on his ways, though Kain seemed to paint a rather idealized picture of the Outsider, like some favored uncle or something. The Outsider the Sorcerer had known was a strict master of the arcane who punished those that misused his gifts harshly and looked out for his people above all else. And the Sorcerer had no doubt that the Outsider was still carrying on these values.
+
+"It is good to hear he is well. I have been leading my people, whom are his creation since his disappearance. And I did always keep an eye out for him but I never until now heard that someone encountered him."
