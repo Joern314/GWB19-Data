@@ -185,5 +185,16 @@
       "Dance",
       "Mimicry"
     ]
+  },
+  {
+    "acts": 16,
+    "draw": -1,
+    "gain": 2,
+    "name": "Glypha",
+    "player": "/u/Senelaria",
+    "spheres": [
+      "Fear",
+      "Flesh"
+    ]
   }
 ]

@@ -1,0 +1,4 @@
+[-2 acts to contact mortal, and -7 Acts to teach woodworking, metalshaping and architecture techs](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm1t4qp/)    
+[The Kiln Islands become Lyvas Holy Land: Goal: Be at the forefront of metalworking.](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm1t4qp/)     
+[Prompt: Endless Projects: Great Bridge with rhaegar and Makator](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm3ynqo/)    
+[Prompt: Eyes Wide Open +3 Acts, -1 Act to create Forktongue Comet](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm4up9j/)
