@@ -1,4 +1,4 @@
-####Epoidos and The White Gates[the-magocracy]
+#### Epoidos and The White Gates[the-magocracy]
 
 /u/Gwydion-Drys
 

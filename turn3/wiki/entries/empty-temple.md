@@ -1,4 +1,4 @@
-###The Empty Temple[landmarks]
+### The Empty Temple[landmarks]
 
 /u/horatius-cocles, /u/Gwydion-Drys
 

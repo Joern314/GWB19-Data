@@ -1,4 +1,4 @@
-###The Gates[celestial-bodies]
+### The Gates[celestial-bodies]
 
 /u/Gwydion-Drys
 
