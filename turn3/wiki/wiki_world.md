@@ -2,7 +2,7 @@
 
 ## Celestial Bodies
 
-###The Arrow
+### The Arrow
 
 /u/Horatius-Cocles
 
@@ -14,7 +14,7 @@ The boy's friends were fed up with his bragging and demanded for him to show the
 
 The boy was not perturbed. He knew he could not possibly reach the sky with an arrow, but giving up without even trying seemed pathetic to him. And so he climbed a tall tree to improve his odds. He took aim and fired. And to the astonishment of the boy and his friends the arrow turned into a streak of silver and in the heavens stars appeared in the shape of an Arrow.
 
-###The Gates
+### The Gates
 
 /u/Gwydion-Drys
 
@@ -22,7 +22,7 @@ The boy was not perturbed. He knew he could not possibly reach the sky with an a
 
 To commemorate the founding of Epoidos the mages of the city performed an ancient ritual, given to them by the Sorcerer. And so there in the sky a constellation in the form of two gates appeared symbolizing the White Gates of Epoidos.
 
-###Segil'reld, The Great Bird
+### Segil'reld, The Great Bird
 
 /u/WHOSGOTYOURSKINNOW
 
@@ -32,47 +32,7 @@ Seven bright stars, all with a green and purple hue marked the beak, wing tips, 
 
 ## Landmarks
 
-### Nkan'gbamo
-
-/u/WHOSGOTYOURSKINNOW
-
-[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
-
-Temple-caves with large square passages, rooms, and stairs underneath The Shattered Mountains. The walls and ceiling are littered with the jewels from when Gon formed the mountain range and glitter with any source of light. At the deepest point, the largest chamber serves as an audience hall with a single stone throne where Gon met with all the various minor gods he had pulled into his service. A smaller room off of this chamber served as his inner sanctum and living quarters.
-
-### The Sea Spike
-
-/u/Horatius-Cocles 
-
-[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flum9pd/)
-
-In good view of both continents the single highest mountain of the world made purely of obsidian rises high above the ocean surface into the clouds. It is called the Sea Spike.
-
-### The Shattered Mountains (Segbiggolod Linenko)
-
-/u/WHOSGOTYOURSKINNOW
-
-[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
-
-Dropped on the second continent by Gon during its creation, The mountain range is full of jagged cracks and crevices that form caves. The nature of their formation left the tops of the mountains broken into sharp points. During their formation, Gon placed large numbers of jewels under and there remain great riches to be found.
-
-### Skaal'gbaldol, the Sky Holder
-
-/u/Rhaegar1994
-
-[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
-
-A sixteen mile high mountain in the form of a Nkarlen down on one knee with his hands up like he is holding up the sky. The source of many legends; he is rumoured to have been the first goblin hero.
-
-### Nkloig Sekzil, The Mouth of Creation
-
-/u/WHOSGOTYOURSKINNOW
-
-[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu8tjs/)
-
-A deep crevice where the goblins are said to have crawled out from. Home to a large number of Ranos priests and serves as Gon's holy land (influence is measured by the percent of the population that lives underground.)
-
-###The Empty Temple
+### The Empty Temple
 
 /u/horatius-cocles, /u/Gwydion-Drys
 
@@ -97,6 +57,46 @@ Inside the main room two pits serve as sacrifice pits to burn offerings to the g
 As it is meant to serve as a home to the gods many furs, seats and primitive tables can be found within the side rooms as well as sleeping and fire places. There are no walls per se, but with wooden struts and sticks connected to the megaliths a framework for walls is formed. The "walls" themselves consist of furs, dried foliage and wicker.
 
 The "walls" are painted in primitive colors, mostly depicting mythological scenarios, like the creation of humans and Apokryph, the laying of Azrakal, Rak being dragged to death by the Sorcerer or the first Iron Judge sentencing Ras, the blood emperor.
+
+### Nkan'gbamo
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
+
+Temple-caves with large square passages, rooms, and stairs underneath The Shattered Mountains. The walls and ceiling are littered with the jewels from when Gon formed the mountain range and glitter with any source of light. At the deepest point, the largest chamber serves as an audience hall with a single stone throne where Gon met with all the various minor gods he had pulled into his service. A smaller room off of this chamber served as his inner sanctum and living quarters.
+
+### Nkloig Sekzil, The Mouth of Creation
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu8tjs/)
+
+A deep crevice where the goblins are said to have crawled out from. Home to a large number of Ranos priests and serves as Gon's holy land (influence is measured by the percent of the population that lives underground.)
+
+### The Sea Spike
+
+/u/Horatius-Cocles 
+
+[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flum9pd/)
+
+In good view of both continents the single highest mountain of the world made purely of obsidian rises high above the ocean surface into the clouds. It is called the Sea Spike.
+
+### The Shattered Mountains (Segbiggolod Linenko)
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
+
+Dropped on the second continent by Gon during its creation, The mountain range is full of jagged cracks and crevices that form caves. The nature of their formation left the tops of the mountains broken into sharp points. During their formation, Gon placed large numbers of jewels under and there remain great riches to be found.
+
+### Skaal'gbaldol, the Sky Holder
+
+/u/Rhaegar1994
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
+
+A sixteen mile high mountain in the form of a Nkarlen down on one knee with his hands up like he is holding up the sky. The source of many legends; he is rumoured to have been the first goblin hero.
 
 ## Lifeforms
 
@@ -131,7 +131,6 @@ A small symbiotic fungus living by eating magic. It lives in predators and eats 
 If an individual mortal is able to fend off this wolf-like creature it takes gooey form and tries to bond itself to the person. The bonding process acts like sickness and kills the host through ensuing fever and auto-immune reactions. In 1 out of 10 cases however, the Nightwalker forms a symbiotic relationship with the host.
 
 The bond with the Nightwalker endows it's with a sense of echolocation, though interpreting the new sensory input takes time and experience. The immune system of the host is also strengthened somewhat after fighting off the infection like the bonding process and their blood turns slightly acidic.
-
 
 ### Rift Tree
 

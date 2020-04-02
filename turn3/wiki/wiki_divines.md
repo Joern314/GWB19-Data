@@ -163,10 +163,6 @@ He is normally clothed in splendours travelling clothes and wears a hooded cloak
 
 ## Minor Gods
 
-### Sarash
-
-Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
-
 ### Dogu
 
 **Player**: /u/Abacadaren
@@ -219,6 +215,12 @@ His exact origins are unknown; Gon Gryn awoke one day to find him simply working
 **Sphere**: Accounting
 
 **Appearance**: A half serpentine naga woman with abacus beads as her scales. Leyanna was created from within Lyva's essence to serve as her assistant, and keeps track of all of Lyva's hoard and treasures.
+
+### The Lizard
+
+A yellow-black lizard who *might* be very powerful and dangerous. Speaks like some kind of narrator. Was killed and eaten by Lyva.
+
+- - -
 
 ### Olasea
 
@@ -288,6 +290,10 @@ Creator: kain ?
 
 **Origins**: Once a blighted mortal who wandered the earth in fruitless pursuits, Rhelii now serves within the Hexforge, tending to the Witch Gardens, where the resources for Oryllia's dark concoctions are made. She is responsible for sewing the misfortunes of mortals within the flora of the garden.
 
+### Sarash
+
+Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
+
 ### The Sisters of Worship, Yinquel, Chantra and Vesper
 
 **Creator**: Lyva ( /u/smcadam )
@@ -306,13 +312,7 @@ Creator: kain ?
 
 **sphere**: thunder 
 
-**Description**: tondra is a minor divine Who wears storm grey attire that resembled a dress along with short curly yellow hair. who  carriers around a large drum which she beats to make thunder 
-
-### The Lizard
-
-A yellow-black lizard who *might* be very powerful and dangerous. Speaks like some kind of narrator. Was killed and eaten by Lyva.
-
-- - -
+**Description**: tondra is a minor divine Who wears storm grey attire that resembled a dress along with short curly yellow hair. who  carriers around a large drum which she beats to make thunder
 
 ## Servitors
 

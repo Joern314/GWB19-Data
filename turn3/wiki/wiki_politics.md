@@ -2,10 +2,6 @@
 
 ## Cultures
 
-### Blood Riders
-
-Description: A collection of many different tribes living in the blood plains. Nomadic, herding deer and riding horses.
-
 ### Apokryph-Society
 
 /u/Gwydion-Drys
@@ -32,6 +28,10 @@ These are the old Apokryphes choosing to mostly stay in the Rift. They have seen
 If they do this duty they are hooded and cloaked, faced hidden behind masks. They carry lanterns of Rift Tree fruit to guide along the dead. 
 
 Rift Keeper society largely follows the conventions laid out by the Sorcerer for the future (See nations – Magocracy).
+
+### Blood Riders
+
+Description: A collection of many different tribes living in the blood plains. Nomadic, herding deer and riding horses.
 
 ## Mortal Races
 
@@ -101,7 +101,7 @@ While all forms of art are a trade for the Citizen case the pursuit of art and k
 
 The nations of the Apokryphs have in many worlds left their mark by being the biggest exporters of enchanted wares and no one says they can not do it again.
 
-####Epoidos and The White Gates
+#### Epoidos and The White Gates
 
 /u/Gwydion-Drys
 
@@ -113,8 +113,7 @@ So it should not come as a surprise that around these gates a settlement of Apok
 
 While there is not yet much magic to study the Sorcerer intended for this town to become the worlds premiere center of magical learning. The town where the knowledge of everything magical in this world is kept. A veritable holy land of the Sorcerer, where those wanting to learn his teaching can flock together.
 
-
-###Sanctuary
+### Sanctuary
 
 /u/Horatius-Cocles
 
@@ -128,14 +127,14 @@ It is no one wonder then that the center of worship for Rictus is also Sanctuary
 
 ## Organizations
 
-### Society of the Sting, Society of the Whisker, Society of the Black Wing 
+### Society of the Sting, Society of the Whisker, Society of the Black Wing
 
 /u/hpllamacrft
 
 [Turn 3]
 (https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fly17wu?utm_source=share&utm_medium=web2x)
 
-The oldest of these was the Society of the Sting, those human and yashool who showed Fidelity to the scorpion. These were the men responsible for eating the Unliving, an unpleasant, but honored task to control their unbearable competition. In the forest, great respect was shown to the ravens for their supernatural intelligence. The most elite human and yashool were initiated into the Society of the Black Wing. They would make elaborate feathered costumes and beaked masks to dance Fidelity to the raven. In the jungle, the Bearcat was king because of its supernatural strength. The elite, human and yashool, in their respective tribes, joined the Society of the Whisker, fashioning costumes and dancing Fidelity to gain an increment of this physical power. 
+The oldest of these was the Society of the Sting, those human and yashool who showed Fidelity to the scorpion. These were the men responsible for eating the Unliving, an unpleasant, but honored task to control their unbearable competition. In the forest, great respect was shown to the ravens for their supernatural intelligence. The most elite human and yashool were initiated into the Society of the Black Wing. They would make elaborate feathered costumes and beaked masks to dance Fidelity to the raven. In the jungle, the Bearcat was king because of its supernatural strength. The elite, human and yashool, in their respective tribes, joined the Society of the Whisker, fashioning costumes and dancing Fidelity to gain an increment of this physical power.
 
 ## Persons
 

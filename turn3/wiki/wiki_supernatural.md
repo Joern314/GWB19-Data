@@ -41,12 +41,6 @@ Magical Arrows who can absorb magical energies upon killing something, so it doe
 
 ## Metaphysics
 
-### Power of Blood
-
-Description: Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
-Power is just not strength, but also a general meaning of power. Kings blood makes for good king in several aspect.  
-Blood can also be applied to people and objects to increase their power temporarily.
-
 ### Fidelity
 
 **Creator**: Yashqal(/u/hpllamacrft)
@@ -84,6 +78,12 @@ To kill an Unliving its brain needs to be destroyed. Any parts attached to the h
 Unclaimed souls and those claimed by the Sorcerer are after death escorted to the afterlife in the “Rift”, the Sorcerer's plane, by the mortals inhabiting the Rift and only those inhabiting the Rift.
 
 The Unliving yearn to sate all their animal desires including food, sleep and sex at all costs. They are however biologically mortal and produce mortal children.
+
+### Power of Blood
+
+Description: Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
+Power is just not strength, but also a general meaning of power. Kings blood makes for good king in several aspect.  
+Blood can also be applied to people and objects to increase their power temporarily.
 
 ### The Thirteen Hexes
 
