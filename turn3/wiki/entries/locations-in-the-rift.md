@@ -1,4 +1,4 @@
-####Locations in the Rift[the-rift]
+#### Locations in the Rift[the-rift]
 
 **Oneiros, the City of Sleep**: At the center of the plane, suspended in mid air, hovers a white city, Oneiros, the city of sleep. Here those who have earned a reward, dream away the time. It is also the primary home of the Apokryph in the Rift.
 

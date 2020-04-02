@@ -1,4 +1,4 @@
-###Ferrick[minor-gods]
+### Ferrick[minor-gods]
 
 **Creator**: Lyva ( /u/smcadam )
 

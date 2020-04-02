@@ -1,4 +1,4 @@
-####The Rift Keepers[apokryph-society]
+#### The Rift Keepers[apokryph-society]
 
 These are the old Apokryphes choosing to mostly stay in the Rift. They have seen other realities and are weary of the world. But they do run through reincarnation all the same, their souls just never leave the Rift anymore, unless they are sent to collect the souls of dead people from the prime material plane.
 

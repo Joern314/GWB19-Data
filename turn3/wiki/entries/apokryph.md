@@ -8,7 +8,7 @@
 
 **Amended**: -
 
-**Description**: Apokryph looks a lot like slightly taller than average humans. They have gray skin and night-blue eyes. Their hair colors range from white and gray over brown to black. The Apokryph are born with dark runic markings on their bodies. These markings change with the stories of their lives. 
+**Description**: Apokryph look a lot like slightly taller than average humans. They have gray skin and night-blue eyes. Their hair colors range from white and gray over brown to black. The Apokryph are born with dark runic markings on their bodies. These markings change with the stories of their lives. 
 
 The Sorcerer and his clergy can read these markings to determine the caste an Apokryph belongs to. As these markings change the stations and powers of an Apokryph, his or her station change in life and Apokryph-society. They also have horns to commemorate the hand of Lyva in their creation.
 

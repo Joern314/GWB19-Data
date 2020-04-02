@@ -1,4 +1,4 @@
-###Pyrephas[minor-gods]
+### Pyrephas[minor-gods]
 
 **Creator**: Lyva ( /u/smcadam )
 

@@ -1,4 +1,4 @@
-###Igali[minor-gods]
+### Igali[minor-gods]
 
 **Creator**: Lyva ( /u/smcadam )
 

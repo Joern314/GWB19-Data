@@ -1,4 +1,4 @@
-###Life after Death[metaphysics]
+### Life after Death[metaphysics]
 
 /u/Gwydion-Drys 
 

@@ -1,4 +1,4 @@
-###Leyanna[minor-gods]
+### Leyanna[minor-gods]
 
 **Creator**: Lyva ( /u/smcadam )
 

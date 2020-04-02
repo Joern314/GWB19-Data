@@ -6,7 +6,5 @@ Creator: kain ?
 
 **sphere**: thunder 
 
-**Description**: tondra is a minor divine Who wears storm grey attire that resembled a dress along with short curly yellow hair. who  carriers around a large drum which she beats to make thunder 
-
-- - -
+**Description**: tondra is a minor divine Who wears storm grey attire that resembled a dress along with short curly yellow hair. who  carriers around a large drum which she beats to make thunder
 

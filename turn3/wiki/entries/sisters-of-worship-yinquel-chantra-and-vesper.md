@@ -1,4 +1,4 @@
-###The Sisters of Worship, Yinquel, Chantra and Vesper[minor-gods]
+### The Sisters of Worship, Yinquel, Chantra and Vesper[minor-gods]
 
 **Creator**: Lyva ( /u/smcadam )
 

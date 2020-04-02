@@ -4,5 +4,5 @@
 
 A large continent with formed by the gods Gon Gryn, Prismari, and Sunda far across the sea from the first continent. It contains an inland sea and white sand beaches on the western side with rocky coasts on the west. A mountain range runs along the eastern side, from when it was dropped there by the earth god. These mountains are rich in jewels. It has not received a proper name, but Gon calls it "Reloik'lakzek" which means "The Land of Broken Stones."
 
-Currently barren.
+Currently home to the Savage Jungle, Green Grass, and the Shattered Mountains
 
