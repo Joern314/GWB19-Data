@@ -1,0 +1,3 @@
+As the Blood Riders travelled further they came across a nomadic tribe camped on the edge of the Great Canyon that called themselves the Seekers. The Seekers traveled in and out of the rift in the view of the Stars, in return for some of the mounts of the Blood Riders they happily shared their knowledge of the movement of the Stars, Sun and Moon. They also offered supplies and manpower to aide in the travelers goal should they so desire it
+
+\[ /u/Plintstorm \]

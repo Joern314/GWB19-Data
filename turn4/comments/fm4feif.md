@@ -1,0 +1,5 @@
+"Your life, your existence here, yes," Lyva hissed, slithering around and over the statue that was only a little bigger than her, as a pulse of energy erupted from her throat. At it, the iron and steel weapons she had used reacted to her magnetism and whipped back towards her, ricocheting through the winds.     
+
+Such surprisingly shielded her from the lightning. As great a conductor as she was, several tongues of lightning lanced into her weapons and sent them off course. The rest sizzled through her and was earthed, tail slamming into the valleys around the knarlen monument, her iron sand mane melted into a glowing orange crest down her back.   
+
+"Gaaargh! TONDRA! Can't you do the Thunder before his lightning and warn me!?" She hissed at the minor goddess, and summoned her weapons back into her, coiling around to strike at Kain where he duelled Prismari in mid air.
