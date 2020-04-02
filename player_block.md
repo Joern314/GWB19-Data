@@ -29,7 +29,7 @@
 > Acts: 23 Gain: +6 Draw: -2
 
 **Rictus** (Law & Hunt) /u/Horatius-Cocles 
-> Acts: 18 Gain: +6 Draw: -3
+> Acts: 18 Gain: +6 Draw: -2
 
 **The Salty Knave** (Sea & Theft) /u/Makator 
 > Acts: 34 Gain: +5 Draw: -2
@@ -41,7 +41,7 @@
 > Acts: 43 Gain: +4 Draw: -2
 
 **The Sorcerer** (Magic & Death) /u/Gwydion-Drys 
-> Acts: 20 Gain: +6 Draw: -2
+> Acts: 20 Gain: +6 Draw: -1
 
 **Sunda** (Animals & Wilds) /u/StarOfTheSouth 
 > Acts: 33 Gain: +5 Draw: -2
