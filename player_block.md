@@ -47,7 +47,7 @@
 > Acts: 33 Gain: +5 Draw: -2
 
 **Thool** (Seasons & Trees) /u/downsmi1 
-> Acts: 27 Gain: +4 Draw: -2
+> Acts: 26 Gain: +4 Draw: -2
 
 **Yashqal** (Dance & Mimicry) /u/hpllamacrft 
 > Acts: 31 Gain: +4 Draw: -2
