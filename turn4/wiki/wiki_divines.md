@@ -367,6 +367,10 @@ She appears as a white feathered gryn dressed in white and wearing a black blind
 
 ### Sarash
 
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fln8poy/)
+
 Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
 
 ### The Sisters of Worship, Yinquel, Chantra and Vesper
