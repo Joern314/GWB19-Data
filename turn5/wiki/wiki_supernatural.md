@@ -27,6 +27,22 @@ The Retaliator was sword of divine creation that Gon brought along with him from
 
 ## Magics
 
+### Arrow Spells
+
+/u/Horatius-Cocles 
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmbyy5j/)
+
+- Armor Piercer: An arrow with increased piercing power versus armor or big beasts.
+
+- Delayed Arrow: Freezes in the air when shot and only takes flight after a delay, allowing the archer to hide or change positions.
+
+- Splitting Arrow: Splits into 3 in flight and hits target thrice.
+
+### Blood Empowerment
+By killing a creature, be it man or beast, one can then drink it's blood in a magical ritual to gain it's power.  
+While only a small amount of power is gained, it is permanent and can be repeated.
+
 ### Blood Storage
 
 Description: Magic used to store magics in blood. Stores magic for 1 year and 1 day.
@@ -39,19 +55,12 @@ Description: Magic used to store magics in blood. Stores magic for 1 year and 1 
 
 Magical Arrows who can absorb magical energies upon killing something, so it does not explode. Magical energy is stored in the arrow until discharged. This is a secret magic and does not become general knowledge. Can only be learned by bargaining with Rictus or buying it directly for 3 acts + 2 acts for secrecy.
 
-###Arrow Spells
+### The Mindburn spell
 
-/u/Horatius-Cocles 
+As the Vazari experimented with their mental ability to dominate others, they found that, if magic was used to amplify their attempt at domination, it could not only dominate a person, but burn out any personal memories that the target possessed while leaving the majority of what made them useful, such as the knowledge of how to craft things or what type of foods where toxic, while leaving them unable to remember who even their closest friends or family.
 
-[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmbyy5j/)
-
-- Armor Piercer: An arrow with increased piercing power versus armor or big beasts.
-
-- Delayed Arrow: Freezes in the air when shot and only takes flight after a delay, allowing the archer to hide or change positions.
-
-- Splitting Arrow: Splits into 3 in flight and hits target thrice.
-
-###Petrification Magic
+The Vazari turned to using this spell as a way to punish their more heinous criminals whose skills were valuable or rare, enough so that consigning them to unliving status outweighed the benefit of imposing more lethal punishments. In effect this spell could only be used legally after a fair trial was conducted by the judging of their peers and after the ritual was completed, the criminal was treated as a reborn person, given a new name and adopted or auctioned off into a family or other tribe that desired their skills so that the victims of the crimes would not have to deal with seeing the perpetrator day in and day out.
+### Petrification Magic
 
 /u/WHOSGOTYOURSKINNOW
 
@@ -61,7 +70,7 @@ This required the caster to take in the magic from an unliving creature who had 
 
 Petrification magic was not instant and could only be used from a short distance, but the living/unliving would slowly turn to stone from the point that the magic was directed to, until they had been rendered into nothing more than a statue. This spell does not permit this to be undone. To prevent becoming a statue, one must rid themselves of all of the parts that have started to turn to stone.
 
-###The Sorcerer's Runes
+### The Sorcerer's Runes
 
 /u/Gwydion-Drys 
 
@@ -88,6 +97,31 @@ Runic markings taught to mortals by the Sorcerer. If fed with magical energy by 
 
 Every thing has a core essence. This essence can be perceived by the outward characteristics of a thing. Creatures can change their own core essence by dancing in a way that mimics the core essence of another thing. This is called showing fidelity. By showing fidelity to a thing one adopts a thing’s outward characteristics to a limited degree.
 For example, a mortal looking to become tougher may show fidelity to a boulder. From observing the boulder they invent a boulder dance that captures the essence of boulders. Then the mortal practices this boulder dance for years; his skin grows tough and he is able to withstand strikes with greater resistance. In the same way, a fox dance may make someone stealthier, the gazelle dance may make someone more beautiful, the fruit dance may make someone more fertile.
+
+### Knitting Flesh
+
+/u/Senelaria
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlgpm/endless_pantheon_turn_5_macro_act_log/fmahxwh/)
+
+Among mortals only the jumbled can make use of the powers this metaphysic bestows. It allows a jumbled to take body parts cut off of another person or corpse and sew them together. A living person can so be given use of a replacement limb if they lost their own.
+
+If a jumbled sews together a roughly humanoid form from corpse or body parts the resulting body comes alive as a jumbled themself. The jumbled live a relatively normal mortal life with a normal life span, the only caveat being they can only reproduce by knitting together a new jumbled. Biologically these new jumbled can however perform any other task a normal human, goblin or whater flesh was used in their creation, can. (Even sex.)
+
+### Legends of the heroes
+
+**Creator**: Kain  & prismari 
+
+**created**: [turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flgnymn/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+**The Law**: Mortals who embrace their Legend shall grow stronger as it grows, but Legends never die.
+
+**Explanation**: When a Non-Incarnate Mortal has the desire to change the world, they open themselves up to the Legends of the heroes . Specifically, they open up the possibility to build their Personal heroic Legend. This turns them into a Heroic Mortal. Heroic Mortals do not need to be "Good" or "Evil," they only need the desire to make a change in the world.
+
+Heroic Mortals grow their Legend by growing their reputation (or fame) in the eyes of other mortals. However, Legend will only grow if you actually did what people think you did. You can't just claim credit for what other people do. Your Legend will not grow if you are anonymous either, people need a name to attach to your deeds in order for you to gain Legend. That name can be a pseudonym, though.
+Heroic Mortals are able to draw upon their Legend to fuel greater deeds. Those with powerful Legends will be able to achieve superhuman feats, although they will never get strong enough to solo a Demigod. This can become a self-reinforcing feedback loop of Greater Powers leading to Greater Deeds leading to Greater Powers.
+There is a cost to Heroism. Heroes Never traditionally Die, but are instead consumed by their Legend. Sure there body may pass with a magical explosion which depending on the size of the legend may be larger and become a unliving but yet A small portion of Their souls will never pass on to an Afterlife, but will instead linger as a portion of their Legend, In the form of an artifact that can gift future heroes with a bit of past heroes abilities. These artifacts cost players at the least 2 acts 
+
 
 ### Life after Death
 
@@ -152,7 +186,7 @@ Years Owned | Power
 
 Of note, hero artifacts are spawned from a soul and as such aren't fully inanimate objects to be affected by this metaphysics, but things like artifacts can be
 
-###Theurgy - Cantrips 
+### Theurgy - Cantrips
 
 /u/Gwydion-Drys 
 
@@ -182,33 +216,6 @@ God | Cantrip
 |**Yashqal** (Dance &amp; Mimicry)|Mimic someone's voice or a sound.|
 
 (As magical power is channeled there still needs to be killed something before use of a cantrip or the caster needs a store of magical power of some kind.
-
-###Knitting Flesh
-
-/u/Senelaria
-
-[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlgpm/endless_pantheon_turn_5_macro_act_log/fmahxwh/)
-
-Among mortals only the jumbled can make use of the powers this metaphysic bestows. It allows a jumbled to take body parts cut off of another person or corpse and sew them together. A living person can so be given use of a replacement limb if they lost their own.
-
-If a jumbled sews together a roughly humanoid form from corpse or body parts the resulting body comes alive as a jumbled themself. The jumbled live a relatively normal mortal life with a normal life span, the only caveat being they can only reproduce by knitting together a new jumbled. Biologically these new jumbled can however perform any other task a normal human, goblin or whater flesh was used in their creation, can. (Even sex.)
-
- - - - 
-
-###Legends of the heroes 
-
-**Creator**: Kain  & prismari 
-
-**created**: [turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flgnymn/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
-
-**The Law**: Mortals who embrace their Legend shall grow stronger as it grows, but Legends never die.
-
-**Explanation**: When a Non-Incarnate Mortal has the desire to change the world, they open themselves up to the Legends of the heroes . Specifically, they open up the possibility to build their Personal heroic Legend. This turns them into a Heroic Mortal. Heroic Mortals do not need to be "Good" or "Evil," they only need the desire to make a change in the world.
-
-Heroic Mortals grow their Legend by growing their reputation (or fame) in the eyes of other mortals. However, Legend will only grow if you actually did what people think you did. You can't just claim credit for what other people do. Your Legend will not grow if you are anonymous either, people need a name to attach to your deeds in order for you to gain Legend. That name can be a pseudonym, though.
-Heroic Mortals are able to draw upon their Legend to fuel greater deeds. Those with powerful Legends will be able to achieve superhuman feats, although they will never get strong enough to solo a Demigod. This can become a self-reinforcing feedback loop of Greater Powers leading to Greater Deeds leading to Greater Powers.
-There is a cost to Heroism. Heroes Never traditionally Die, but are instead consumed by their Legend. Sure there body may pass with a magical explosion which depending on the size of the legend may be larger and become a unliving but yet A small portion of Their souls will never pass on to an Afterlife, but will instead linger as a portion of their Legend, In the form of an artifact that can gift future heroes with a bit of past heroes abilities. These artifacts cost players at the least 2 acts 
-
 
 ## Miracles
 
@@ -255,7 +262,7 @@ These powers can be revoked by an Iron Inquisitor or withdrawn by the miracle it
 
 The strain put on Lawbringers is the same or even greater as that put on Judges, when they bend reality.
 
-###Waidmänner
+### Waidmänner
 
 /u/Horatius-Cocles 
 

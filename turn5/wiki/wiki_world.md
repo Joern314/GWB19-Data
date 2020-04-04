@@ -30,7 +30,7 @@ To commemorate the founding of Epoidos the mages of the city performed an ancien
 
 Seven bright stars, all with a green and purple hue marked the beak, wing tips, two legs, the end of the tail feathers, and one at the heart of the being, were filled in with duller stars to complete the image. All glistened like bright jewels in the heavens and the beak of the great bird was anchored above the Temple-Caves of Nkan'gbamo. It would be said that the bird always flew home.
 
-###The Wall
+### The Wall
 
 /u/Senelaria
 
@@ -168,6 +168,9 @@ Description: A large scaled warm blooded creature with extremely tough jaws to s
 Created by Lyva, [Turn 3](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fm061ji/)     
 Description: A glowing metal that is quite easy to work, and constantly sheds warm golden light.
 
+### Malaphine
+
+A crystalline material most useful in weapons and armor, but also usable in construction. It is very balanced in strength and give.
 ## Regions
 
 ### The First Continent, Primus
@@ -201,6 +204,15 @@ The low canopy is home to the most life, much of it herbivourous and navigating 
 
 The top layers of the canopy are bright and the most fruitful, though also the most volatile and dangerous on slender branches. Fireflies provide light here almost permanently, keeping the screams from sounding, and many species of sensitive bats, birds, flying serpent and tiny monkey like creatures roam here.
 
+#### The Great Canyon
+
+Once a foreboding and lifeless scar on the world, The Great Canyon that divided the continent called Primus was now finally healing more then 8000 years after the wound had first been dealt. Moisture was rich here as it was funneled up from the southerly winds before getting trapped between the miles high ridges that made up the walls of the canyon, leading to a thick blanket of ever-present rain clouds covering the sky.
+
+Under these clouds soared a multitude of life, some animals aimlessly drifted in the wind while others soared with wings as long as a man stands tall and everything in between. The plantlife itself clung to the sides of the ridges, some of the largest plants growing upward several kilometers from the base of the canyon to the tallest ridges while the floor of the canyon had a river that ran through the middle towards the sea and was coated in many tall trees, each competing for the limited amount of sun that shines down on the ravine.
+
+Most animal life here flies in one method or another while most plants rely on alternate sources of energy then the sun to supplement their diet
+
+\[-4 acts for bioforming\]
 #### The Great Salt
 
 Creator: Lyva and Knave, ( u/smcadam and u/Makator)
@@ -249,25 +261,11 @@ Currently home to the Savage Jungle, Gbigolind (Ireland/Grasslands), Amalah, Nki
 
 A land of immense mountains, deep valleys, expansive caverns, immense lakes, and raging rivers. Many of the Mountains are volcanoes, and earthquakes are yearly events throughout the region. Created by the impact of a comet.
 
-#### Nkirbaal
-
-An inland sea formed during the creation of the second continent.
-
 #### Gbigolind (Ireland/Grasslands)
 
 Green grasslands and rolling hills not unlike Ireland. Populated with the usual assortment of wildlife plus Beardillos.
 
-#### The Shattered Mountains
-
-Jagged and broken mountains full of twisting and sharp caves. Home to all kinds of bioluminescent creatures and plants and the hoarding crabs. See entry under landmarks for more info.
-
-#### The Savage Jungle
-
-Description: A jungle filled with danger, large reptilian like creatures.  
-Food: Meat, Fruit, Crop  
-Resources: lumber, scales, plant fiber, exotic/dangerous animals
-
-####Jumbled Mountains
+#### Jumbled Mountains
 
 /u/Senelaria
 
@@ -278,3 +276,16 @@ A curious chain of mountains hewns from very different kinds of rock giving it a
 The mountains are filled with caves. There are many streams running down the mountain and many pastures for the very common goats the inhabitants herd.
 
 The foot is packed with dense forests and its typical flora and fauna.
+#### Nkirbaal
+
+An inland sea formed during the creation of the second continent.
+
+#### The Savage Jungle
+
+Description: A jungle filled with danger, large reptilian like creatures.  
+Food: Meat, Fruit, Crop  
+Resources: lumber, scales, plant fiber, exotic/dangerous animals
+
+#### The Shattered Mountains
+
+Jagged and broken mountains full of twisting and sharp caves. Home to all kinds of bioluminescent creatures and plants and the hoarding crabs. See entry under landmarks for more info.

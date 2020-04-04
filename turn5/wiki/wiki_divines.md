@@ -39,6 +39,26 @@ Lost things here in refers to second death style things, lost to the point no on
 
 Sentiment refers to connection and emotion, like love or care (though it can be negative sentiments). The feelings one has towards a favorite stuffed animal, or the love for a family member.
 
+### Glypha
+
+/u/Senelaria
+
+**Spheres**: Fear and Flesh
+
+**Appearance**: At first glance she looks like a beautiful young woman, but the less you pay attention to her, the more you can perceive the rotting corpse underneath the exterior shell.
+
+In her more human-looking stage of appearance, she seems to have white skin, blue eyes and black hair, while wearing a pretty, white dress.
+
+But the more unfocused someone's look becomes on her the more the pale and blotchy skin of a corpse, the stitches keeping her rotting body parts together and the matted and filthy strands of hair shine through. As well as talons on her fingers and sharp and very hungry teeth.
+
+**Plans and Style**: Make mortal suffer for leaving their unliving relatives to rot and die in filth.
+
+**Origin**: Many of the mortals could not bear to kill the Unliving their loved ones on the verge of death eventually become. And so they relinquish the nearly dead in the wilds to turn into the unliving and eventually be killed by someone else. One such place is a ravine the people of this world tend to toss their dead relatives into, therefrom the unliving born of their corpses can not return to do harm.
+
+Invariably either forced to eat each other, feed on themselves or starve a lot of magic is collected in one place, whenever more than a few of the Unliving are tossed into the ravine. From this collective suffering and magical inferno rose Glypha.
+
+**Further explanation**: Stitching together corpse flesh to make monsters. Terrify mortals for vengeance.
+
 ### Gon Gryn, Vengeance Reborn
 
 **Player**: /u/WHOSGOTYOURSKINNOW
@@ -160,26 +180,6 @@ He is normally clothed in splendours travelling clothes and wears a hooded cloak
 **Origin:** One of Lyva's scales broke loose, combined with the last remnants of that Act Feyrun threw through the sun, and turned into Sunda.
 
 **Further Explanation:** Not really sure what needs to be elaborated on, as I'm mostly just planning on doing character stuff this game. No big plans from me.
-
-###Glypha
-
-/u/Senelaria
-
-**Spheres**: Fear and Flesh
-
-**Appearance**: At first glance she looks like a beautiful young woman, but the less you pay attention to her, the more you can perceive the rotting corpse underneath the exterior shell.
-
-In her more human-looking stage of appearance, she seems to have white skin, blue eyes and black hair, while wearing a pretty, white dress.
-
-But the more unfocused someone's look becomes on her the more the pale and blotchy skin of a corpse, the stitches keeping her rotting body parts together and the matted and filthy strands of hair shine through. As well as talons on her fingers and sharp and very hungry teeth.
-
-**Plans and Style**: Make mortal suffer for leaving their unliving relatives to rot and die in filth.
-
-**Origin**: Many of the mortals could not bear to kill the Unliving their loved ones on the verge of death eventually become. And so they relinquish the nearly dead in the wilds to turn into the unliving and eventually be killed by someone else. One such place is a ravine the people of this world tend to toss their dead relatives into, therefrom the unliving born of their corpses can not return to do harm.
-
-Invariably either forced to eat each other, feed on themselves or starve a lot of magic is collected in one place, whenever more than a few of the Unliving are tossed into the ravine. From this collective suffering and magical inferno rose Glypha.
-
-**Further explanation**: Stitching together corpse flesh to make monsters. Terrify mortals for vengeance.
 
 ## Minor Gods
 
