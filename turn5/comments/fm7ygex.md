@@ -1,0 +1,7 @@
+The Founding of Wooxti-Kwashotl
+
+After the falling out between the Wooxti humans and the Shagantar, the Wooxti slandered the nomads, calling them “uprooted drifters that not even a mother could love.” Their vitriol attracted large numbers of yashool who didn’t care for the nomadic life. In this era, the yashool and humans started to live together. Still the bounds of tribes stayed clear (since it is rather difficult for flesh and wood to reproduce). Mixed settlements grew larger. They learned to fashion clay pots to ferment their harvest. They made carts to transport all their goods. They made traps to catch river cichlids, fanged deer, and bumblebirds (from which they gathered the rare bumblebird jelly). Axes, swords, and nails were fashioned for the first time. To avoid seasonal migration, they built their homes on mounds that withstood the floods of the Bakwagalis.
+
+The largest settlement became Wooxti-Kwashotl, named after the two tribes. The yashool graciously allowed the human tribe name to come first, as long as they had the last word. It was located in the jungle, on the southern bank of the river Bakwagalis, and Scorpion Island \[holy land\] was not too far downstream.
+
+\[+3 unique good, +1gain Herding the Masses\]
