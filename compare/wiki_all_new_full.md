@@ -926,6 +926,8 @@ Among mortals only the jumbled can make use of the powers this metaphysic bestow
 
 If a jumbled sews together a roughly humanoid form from corpse or body parts the resulting body comes alive as a jumbled themself. The jumbled live a relatively normal mortal life with a normal life span, the only caveat being they can only reproduce by knitting together a new jumbled. Biologically these new jumbled can however perform any other task a normal human, goblin or whater flesh was used in their creation, can. (Even sex.)
 
+ - - - 
+
 ### Legends of the heroes
 
 **Creator**: Kain  & prismari 
