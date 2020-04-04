@@ -1,0 +1,9 @@
+Destroyed, all gone. The **titan cranes** and **razorback bears** had grown even more ferocious with the collision of that cursed meteor. Their rampages had destroyed the crude settlements of the dancing peoples of the great forest. Even the wise ravens of the forest were being exterminated, for no nest was safe. Yashqal feared that the **Society of the Black Wing** was going the same way. So he chose one yashool woman, a master of the black wing dance, to bring a message to the city of Wooxti-Kwashotl. 
+
+She was already possessed of great ingenuity, as a Black Wing Master. She had mastered natural philosophy, purely through observation, and now her intellect scanned her wealth of knowledge to gain knowledge of the first cause. Yashqal made contact with her creative intellect and inspired even greater designs. When she came to the settlement of Wooxti-Kwashotl she revealed herself at a dance circle, as **Shata** of the Black Wing. 
+
+“Brother and sisters, a terror spreads across the lands to the south, worse than any horror we faced since our legendary bondage in the Ras’shalas empire. Brothers and sisters of Whisker and Sting, I lend you my plans for great weapons. In your hands these will give us a deadly advantage. With every creature we kill, we will grow stronger by their blood.”
+
+All Wooxti-Kwashotl was alight with excitement. Shata designed molds to cast **new bronze swords** and designed pelt armour that protected but also **camouflage**d. She led humans and yashool in training and tactics, and while they trained **she sent out ravens across Primus to find any allies,** before they marched.    
+
+\[-3 prophet, -3 shaped weapons, -3 shaped armour\]
