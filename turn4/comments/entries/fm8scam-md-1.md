@@ -1,0 +1,4 @@
+# None [None]
+"Flattery's fun, oh mightiest caller of the waves, oh wonder of the roaring deep, oh first person to out-kleptomaniac me!" She arched her back and rolled her shoulders, letting the dress drop a few inches as she breathed. "Much, much better, though I am still curious."    
+"How did you hide your mask and things away? Do you have your own hoard? I think I might be able to find it..." She grinned and slipped a hand under her shirt, tickling her side.   
+"Hmm, no, not like that- but I got my earrings back from you before, so there must be a method..." She grinned and stroked her chin in exaggerated confusion, then bent and kissed her neck, nibbling ever so gently as she did, "Ah, that was a bust... but I'm on the right lines amn't I? I'll just have to try that everywhere until I find my dress..."

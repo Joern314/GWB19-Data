@@ -1,0 +1,4 @@
+# None [None]
+"(Incomprehensible Gibberish)( It is pleasing to have you understand my speech, most often when I encounter another who can understand me it is shortly before a fight to the death. I suppose that is a failsafe of the universe, setting it's toys to clean themselves up once it is bored and moved onto other things.)" Malaphet vibrated, in what could have been a cruel, self-deprecating laugh, or maybe a emphatic sigh, difficult to tell as Eye-Thing currently seemed to lack the ability to translate the intent behind wordless noises.
+
+"(Incomprehensible gibberish)(Perhaps I am peculiar, though that is likely because I am of a previous generation of the universes toys, before things were as tied down as they are now by all these laws of reality and before so many deities shared your bipedal form.)" Malaphet rumbled as the Eye-Thing spoke over him, his vast and nebulous form shifting and shimmering in the cosmic winds

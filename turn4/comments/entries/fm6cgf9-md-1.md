@@ -1,0 +1,6 @@
+# None [None]
+Malaphet had been in the midst of conducting some observations on the human populace when he heard Yashqal call out into the sky. Unsure of why the dancing one would require such a specific star or what exactly these things called spring, summer, autumn and winter were he quickly scanned the minds of the mortals he was observing for the meaning. Understanding of at least the meaning of the dancing gods request achieved Malaphet opened one of his greater eyes that possessed all four requested colors and set into a wobbling spin so that it might serve the required role, after all Yashqal was a nice enough god for a newly born one, and with all his limbs he was vaguely reminiscent of some other elder gods that Malaphet had met(and eaten, but he wasn't going to mention that particular bit)
+
+\[-1 act for constellation: The Seasonal Star, +3 acts for prompt The Eyes Wide Open \]
+
+\[ /u/downsmi1 , here ya go, 1 four color star coming right up \]

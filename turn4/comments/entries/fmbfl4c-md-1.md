@@ -1,0 +1,4 @@
+# None [None]
+"Well, surprise surprise, guess what, I'm not defeated then!" Lyva punched him as he stuck his tongue out, and stood up, swaying slightly. "You're you, your soul is your own, if you swallow them properly then it won't be any problem- and the bodies are just matter, they're what trees and soil are made from, it's just a shape!"    
+
+She steadied herself, struggling without a tail and turned away, "That's another ten dead, just so you know. The more you delay, the more die. That doesn't sound very heroic."

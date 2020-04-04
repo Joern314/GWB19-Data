@@ -1,0 +1,4 @@
+# None [None]
+"Well do you have any better game ideas?" Lyva wondered, laughing loudly as Nadeline acted polite and neat in an outfit that signified the complete opposite of such. "Hmm, it's not... *you* as I expected, though I've got one more modification I want to try, then your turn... or my turn, you know what I mean!"    
+
+She flitted around her, pecked her neck, and pulled the band keeping the Knave's long hair in a tail free. After a moment Lyva stepped back, her orange energy locks now bound into a top knot between her horns, looking fascinated by Sapphire's hair hanging free. "There... that's also strange, you look almost *innocent* with your hair down! Oh no you look dangerously innocent!"

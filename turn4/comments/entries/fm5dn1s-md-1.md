@@ -1,0 +1,2 @@
+# None [None]
+"Well they're never going to cut gems without our help, silly!" Lyva hugged her close and tapped her forehead. "That's what investment means. If I refused to invest, this planet wouldn't even be here and I'd never get more treasures!"

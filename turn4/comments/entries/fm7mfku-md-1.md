@@ -1,0 +1,8 @@
+# None [None]
+"They're valuable, of course I have them," Lyva beamed at her approval, surprisingly soft and cool to the touch, though she seemed to lack her exterior's strength and wobbled slightly as she walked Sapphire out. The vault door slammed shut behind them, the heat no long intensifying, but energy still lingered like a boiling hot day.         
+
+Lyva led her to another building within the hoard, this one almost cathedral like with great windows over the gilded city, vast mirrors and yet a floor covered in carpets, divans and soft couches. Chests and wardrobes lined the walls, and Lyva eagerly pulled her over, opening them to reveal other dresses, coats, chainmail, sashes, shawls, skirts, tunics and all manner of other clothing, jewellery and ornaments.     
+
+"Consider this an apology for the water. Not that I regret it- you look stunning not wrapped up in water." She grinned, blushing slightly, "How about a little game? I'll choose things for you to wear, and you can do the same for me? Like... you could try this, and this, and this..."    
+
+Lyva collected several items of sailors she had known, a greatcoat, high boots, a bright sash and other things she considered piratey, since that was the closest mortal occupation she could think of to the Knave.

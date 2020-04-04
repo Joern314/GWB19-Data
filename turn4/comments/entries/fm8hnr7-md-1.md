@@ -1,0 +1,4 @@
+# None [None]
+Immediately as Malaphet bite into kain he could tell something wa very very wrong the flesh was giving way to a black steam or mist as the body was devoured and Malaphet would hear the warped screams of agony from the dark mist , ranging from perfectly human-like to inhuman shrieks of some ungodly wraith from the body that kain had created  the suddenly pain as if   skin was burning like acid, flesh audibly sizzling
+
+kain wasn’t stupid enough to fight Malaphet in his own Domain he just wanted to escape. And so as if his survival depended on it he draw upon his grandmother shadows inspiration and turned his  giant body into a void storm so it could cover his escape

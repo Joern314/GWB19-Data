@@ -1,0 +1,16 @@
+# Kain marson and Prismari [Gods]
+
+**Player** /u/Rhaegar1994 
+
+**Appearance**: kain marson: an ageing god who looks to be in his mid-thirties who a slander face with short strawberry blonde stubble along with long unkept strawberry blonde hair. He is normally always smirking . Kain wears what once was a long white robes with intricate red and black embroidery that has faded to grey and stained with void like patches. His robe is armless To show off his unique arms that appear to be made of shadows for his left and light for his right from far away, but upon closer inspection the arm made of "shadow" is truly made of storm clouds and the one made of "light is truly made of a ice cold mist.
+
+Prismari: in his natural form Prismari look is an ever shifting blob or ball of colour. But his favourite form would be  that of an androgynous human with prismatic eyes and long rainbow hair that was about the age of eighteen. With a  cloak that has hints of colour but mostly has fade from traveling the void and is just  now black. Shockingly enough when compared to kain one could almost see a familial resemblance 
+
+**Spheres**: storm and heroes 
+
+**Plans and Style**: for my plans I shall be making some sort of hero based metaphysic, Along with a adventurer/ hero’s guild to possibly be my main source of worship . As for storm related stuff. I’ll likely make a metaphysic for it as well as an eternal storm or something a long the lines. 
+
+**Origin**: kain a father whom lost his child and searched the multiverses, he finally found the lost child only to lose him as he left with a lady friend. But as luck would have it seemed prismari and lyva where separated some how well traveling the void and was rescued by his father refused to tell the child they where family but offered to help track down lyva and teach the godling a thing or two along the way 
+
+- - -
+

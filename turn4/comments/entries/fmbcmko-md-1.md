@@ -1,0 +1,4 @@
+# None [None]
+"I know... I know my hoard. I know my possessions, my *honourable* hero." Lyva growled and hugged him tight, turning to heavy cold lead.    
+"You lost. You eat two. Two souls two bodies. Then you can do you want with the other eight." She hissed, "That's still heroic. You can save eight people, that's heroism isn't it? The maths works out. And then you can *thank* me for being generous!"      
+She leaned back, looking furious and upset, glowering at him, "Isn't that good enough? Save eight, and the other two are your reward, your present!"

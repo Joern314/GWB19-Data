@@ -1,0 +1,12 @@
+# Fidelity [Metaphysics]
+
+**Creator**: Yashqal(/u/hpllamacrft)
+
+**Created**: [Turn 1]
+(https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flhz5pr?utm_source=share&utm_medium=web2x)
+
+**Description**: The true essence of all things, which can be mimicked to induce transformation. 
+
+Every thing has a core essence. This essence can be perceived by the outward characteristics of a thing. Creatures can change their own core essence by dancing in a way that mimics the core essence of another thing. This is called showing fidelity. By showing fidelity to a thing one adopts a thing’s outward characteristics to a limited degree.
+For example, a mortal looking to become tougher may show fidelity to a boulder. From observing the boulder they invent a boulder dance that captures the essence of boulders. Then the mortal practices this boulder dance for years; his skin grows tough and he is able to withstand strikes with greater resistance. In the same way, a fox dance may make someone stealthier, the gazelle dance may make someone more beautiful, the fruit dance may make someone more fertile.
+

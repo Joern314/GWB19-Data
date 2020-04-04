@@ -1,0 +1,18 @@
+# None [None]
+As Malaphet began to observe the world that had formed over his once-was meal, watching the primitive mortals that crawled on it's surface, from among them he noticed one that he had seen on many worlds that he had devoured in eons past.
+
+Perhaps there was something special about these mortals that he had seen them on so many worlds. Some trait that made them so important or crucial to a world that only a few went without them. With this in mind he dived into their minds, watching them from within their own fleshy and confusing forms, learning about them and how they worked. He found that while many were intelligent some of them were surprisingly dumb, lacking any form of higher thought or drive that wasn't completely primal.
+
+At first Malaphet decided that they were the drone class, or perhaps a specialized berserker class of some hive mind, and yet when they encountered other of the more intelligent mortals  they turned violent. Perhaps these intelligent mortals had forgotten to how to control their lesser kin, that or their creator had forgotten to gift them to it, obviously a grave oversight by their apparently foolish maker.
+
+Reaching out into the planet he grabbed many of the less intelligent mortals as well as a handful of the more intelligent in a ratio of either gender or type that he, based on his astute observations of biology and life cycle he had made over the past couple years of observations, figured would lead to an ideal and rapid population growth. He then deposited them upon the surface of his now Holy Island, wiping the personal memories of all but the most malleable to his plans. As he had ensured that those he had grabbed were of peak mental, physical and genetic quality and all of relatively disparate backgrounds he had few concerns about the of threats of inbreeding on his samples.
+
+He then set to work on the alterations needed to allow the lesser mortals to be brought to heel by their more capable kin. He enhanced one of these mortals more then the others, one that his observations had lead him to believe to be of the female gender, though admittedly he had had to fall back on the explanations given by the Salty Knave on the finer points of humanoid gender identification. To this mortal he gave the immeasurable gift of being able to comprehend his words without dying of catastrophic brain hemorrhaging. He told her that he had made her and her sentient kin complete, given them the ability to dominate their lesser kins wills and bind them to their own. He told her that he had brought them to his holy place, where he had once infused with his essence as he pulled it from the still cooling sea floor.
+
+He explained that they would be the caretakers of this island, and that in return he would guard and guide them. He answered her questions where possible, though as the young woman of the designation Mineara would soon find, acceptable answers had very differing standards between the perspective of an eldritch god and a very mortal human.
+
+\[-2 acts for teleporting genetically stable population of human mortals + unliving to the Tadaloan Island Chain\]
+
+\[-3 acts for alter being: Domineering will, those with this alteration can dominate the wills of lesser beings with their minds, creatures on the level of Unliving require almost no strain whatsoever while most mortals require either deep unhinging mental trauma or significant time and effort to dominate.\]\[I'm tired and want to get this out, I may alter this to be a magic/miracle when I have more mental energy if required\]
+
+\[-3 acts for create prophet: Mineara\]

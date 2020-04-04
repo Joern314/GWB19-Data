@@ -1,0 +1,10 @@
+# Prompt: Endless Projects [None]
+
+The Blood Riders have lived under the dark sky for generations, they have gazed on it and wondered about it.  
+What else are you to do during those long nights? (expect sleeping I guess). Then the night sky became filled with stars, small lights.
+
+They begun to look up on the sun and moon and now the stars, some wanted to map it, they got stones are carved the stars, the moon and sun's path in to it, but this was far to little, they lacked knowledge.  
+
+Some of the Blood Riders rode out, to find more knowledge regarding this.
+
+[/u/dragoneyecreations, /u/cruelobsidian, starting post.]
