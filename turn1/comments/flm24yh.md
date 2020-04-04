@@ -1,1 +1,0 @@
-"My plans are few and far between, and none so grand as you may imagine." Sunda told him. "I shall wander, explore, and create life where it pleases me. Beyond that I know not."

@@ -1,3 +1,0 @@
-The Sorcerer simply nodded and led the small godling into the Outsider's library in the Rift. It was the one place no one could enter without his permission and was as far from the material plane and its reality as it was possible to get without visiting the void.
-
-"So tell me what exactly have you found? Before you answer I can offer you peace and slumber in the halls of Oneiros, which is the place where the dead go. If that is a sufficient death for you."

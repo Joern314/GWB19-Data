@@ -1,4 +1,0 @@
-##Firm Foundations     
-Clutching the bloody skin of Azkarel, Lyva was keen to dispose of the bloody trophy as soon as possible. Or, better still, use the exterior of a god for something useful.    
-
-And so she turned her attention to the planet once more and set the skin in place as a better layer between the molten mantle beneath and the ocean and continents above. The skin would form the crust and tectonic plates of this world as it broke down, far too singed and broken to ever be scavenged, and it formed a nice barrier to prevent anyone from pillaging the valuable molten metals of the interior.

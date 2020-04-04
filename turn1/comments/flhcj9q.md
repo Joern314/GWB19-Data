@@ -1,3 +1,0 @@
-"Mala...phet? What's that? The word for revenge in... uh, whatever, you speak? Srukzek, there I go again with the yes or no questions..." Gon replied.
-
-"Well, my strange friend, I am glad you at least know what revenge is. So, listen, if someone crosses you in some way and you want some vengeance you just let me know alright. I'll see what I can do for you. The only exception is a certain metallic dragon. I am already under, shall we say... contract for her. Understand all that?" Gon stated with a broad grin.

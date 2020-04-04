@@ -1,3 +1,0 @@
-"I don't know, my dragon form grows. I was assuming I'm done if I matched mother, but I don't know. Size is a matter of perspective anyway, it's just my perspective is much vaster with my grand age now." Lyva shrugged bare shoulders once more, "I don't think it's strange to grow in eight millennia, I'm surprised you don't have a giant feather beard though. And glad you don't, that would be too ticklish."   
-
-She stroked his chin, then turned her attention to the crystalline lion, hugged it and giggled like a child as she was licked and examined and began to explain her measurements and texture she had, and quietly whispered some additional ideas for patterns in the lesser god's ear.

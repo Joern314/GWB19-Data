@@ -1,3 +1,0 @@
-As the Goddess of Hexes stroked Malaphet's flank her presence registered with the being mind and it allocated additional resources to processing, they had been the first of the newcomers to actively touch Malaphat. Three great eyes, larger and more intense then the others moved with Malaphets bulk as they began to focus upon the goddess
-
-"(Incomprehensible gibberish)" it vibrated as Malaphets form roiled with increasing intensity, it appeared as if Oryllia had caught the entities attention.

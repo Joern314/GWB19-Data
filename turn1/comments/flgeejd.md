@@ -1,1 +1,0 @@
-As Prismari approached the shapeless being, two great star like eyes, one green and one a deep violet shifted to focus upon the humanoid entity. "(incomprehensible gibberish)"  rumbled the roiling flesh as it maneuvered it's bulk to train more eyes upon him

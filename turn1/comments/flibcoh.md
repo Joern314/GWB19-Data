@@ -1,3 +1,0 @@
-Lyva's accounting came up short.                  
-It took a while. She changed forms often these days, switched length and material, and a damnable wretch had ripped off one of her scales. But she was missing another one. Dislodged in her angry pursuit of the bloody little pest.           
-And so she traced her own scent, searching for the scale in dragon form, a great brass sinuous dragon, hunting down what scales she had lost. Yet the scent was moving, which meant someone else had it, and it didn't smell like her so much, and so she flew even faster and more urgently, seeking the creature.

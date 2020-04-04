@@ -1,2 +1,0 @@
-###Prompt: Beautiful Creatures[lifeforms]
-

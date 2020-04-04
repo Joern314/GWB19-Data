@@ -1,1 +1,0 @@
-"Depends on your definition of old and new, I am afraid. I was created not too long ago, from the void left behind by the old world. I am a new goddess, but my being could possibly be not so new, although it's up to debate." Sarah said, a little surprised by the words that came out of her mouth. She didn't think about her being and nature that much since she was created.

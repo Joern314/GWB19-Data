@@ -1,1 +1,0 @@
-Malaphet watched as the Snake coiled into an orbit around his eye and began to warp his body, moving many more eyes to focus on the snake, examining it thoroughly as it rested by the warmth of the sun

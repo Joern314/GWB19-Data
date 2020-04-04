@@ -1,1 +1,0 @@
-You are an amazing creature indeed! We are Thool, god of trees and the bringer of the seasons. When I change my form the seasons change with me as I will it. How do you move so beautifully?"

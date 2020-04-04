@@ -1,7 +1,0 @@
-As the torch expands to become a creature the tendril flinches backward before circling the newly formed being, observing it as the young girl reaches into it's mouth and extracts the tooth.
-
-"(Incomprehensible gibberish)" the tendril rumbles slowly, before swaying toward the tooth. As it sway's the girl sees a tooth ripple it's way down the tendril before reaching the tip. In a single swift motion the Tendril wraps around the offered tooth while depositing the descending tooth into the young girls before coiling back up into the sky, the creatures tooth firmly wrapped into the tendrils grasp, leaving it's own tooth in the hand of the young girl.
-
-If the young girl watched the sky after the tendril left her vision she would see a giant tooth appear in the sky, slowly spinning in a way that would create the appearance of phases of the moon depending on what way the Tooth moon was rotated, each rotation taking approximately 30 days.
-
-\[I have some plans for the next couple turns that will require some acts, I'll pay 2 out of the 5 acts required to create a moon, I'd appreciate it if you could pay the remaining 3, and feel free to add or alter anything to the Tooth Moon in your response to this post\]

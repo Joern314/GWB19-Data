@@ -1,1 +1,0 @@
-"Right now, I simply wish to get to know everyone and to get an understanding of how things work here." Sarah answered, playing with her hair. "Although given how fast things are moving, it might not be a possibility."

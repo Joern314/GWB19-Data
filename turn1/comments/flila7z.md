@@ -1,1 +1,0 @@
-"Godling? Is that what you are?" He questioned. "I am as much as you, as much as any of the others that wander this empty world."

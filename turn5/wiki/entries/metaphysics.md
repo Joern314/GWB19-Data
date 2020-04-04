@@ -1,2 +1,0 @@
-# Metaphysics [The Supernatural]
-

@@ -1,1 +1,0 @@
-“Hello! Interesting feet you have there! I’m not sure what I’m a native of, I just am. Do you have any games of sport you enjoy?” Shilo replied with a large grin on his marbled face.

@@ -1,3 +1,0 @@
-"How do you *win*, Gon? Heh, if you can stop me properly, then I'll give you one of my favourite stones, and you can choose my garb for a year." Lyva grinned as she jumped upright, leapt and tried to match him. As iron she could fiddle with magnetism, anchor herself to the iron in the ceiling, but she still slammed into it and struggled to her feet, "Unless you have another idea?"     
-
-Then her chain was whistling at him, flail not acting like a flail in the slightest as she ignored centrifugal force and willed the metal to dart at his hand and blade, trying to disarm him.

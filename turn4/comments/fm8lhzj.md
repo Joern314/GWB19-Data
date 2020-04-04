@@ -1,1 +1,0 @@
-Malaphet paused at the upper atmosphere, watching the god descend into the clouds. Turning back, he was loath to fight the god again within his own domain, and besides, he had left him an interesting gift to study.

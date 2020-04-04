@@ -1,7 +1,0 @@
-Sarah hummed softly. "You do not seem evil," she agreed. "and I must say that I agree with your views at least in part. However, I fear that I am still not entirely comfortable with you owning everything. It's just the fact that irritate me, not anything else."
-
-Sarah then became quite, trapped deep in her thoughts, wondering if what she's about to do is really worth it and thinking about the possible consequences. After a time, she spoke. "Consider me your ally and friend, Lyva, Goddess of Greed and Metal. Should ever need my assistance in any way, I will help you, provided that the help required and the purpose for which you ask it do not violate my moral standards and personal beliefs, and that they do not contradict my own plans."
-
-Honesty, Sarah wanted to slap herself and apologize to Lyva right as the words went out of her mouth. Why in the name of everything she said that?! She didn't even know if Lyva would want to be her friend, and the formal way which she said it... Arrrgh! She hoped that the other goddess recognize that alliance\friendship request as an effort to get closer to her, not just a formal thing. And what if she saw this as an insult, somehow? Sarah already managed to enrage one goddess without knowing how, she most certainly didn't want *two* of them angry at her. Gahhhhhh!
-
-Sarah swallowed and really, really hoped that Lyva didn't have inside her body something that allows her to thoughts.

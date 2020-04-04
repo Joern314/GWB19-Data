@@ -1,1 +1,0 @@
-\[ u/smcadam u/Rhaegar1994 u/Plintstorm the first of the Hexes has been unleashed\]

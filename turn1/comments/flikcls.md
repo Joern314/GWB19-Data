@@ -1,5 +1,0 @@
-Lyva was of two minds about this whole thing. She wasn't used to being in two places, the senses of being thrown and bludgeoned at once was confusing, and so she recoiled. 
-
-The half dragon being bludgeoned curled into a knot, then a sphere, then a spiked ball, its tail suddenly morphing into a long chain that shot out, past the kraken, and found a waiting hand as Lyva assumed her humanoid state, dark iron and molten red painting her almost demonic. 
-
-With a flick of her wrist, the colossal flail lashed backwards, scarring soft tentacles as it flicked through them, and whirled like a planet around her form, braced on nothing as she was. Faster and faster it span, enough that it seemed as if she had two flails, then three, then four, then the illusion became reality. Burning molten chained meteors slammed and whipped and lashed at the monster, only to bounce and rear back like yoyos at her command, matching its squishy tendrils.

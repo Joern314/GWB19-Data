@@ -1,3 +1,0 @@
-As Lyva emerged from the molten sea covering the skull, the shape was far from a little lady. A titanic draconic neck craned up and opened a sharklike mouth in a small yawn, a white mane running down her spine. Thus roused she blinked huge eyes and focused on him.      
-
-"Kain. You again." Lyva murmured a little blearily, a flex of her neck rippling down underneath the magma, and rippling along a long tail hundreds of metres away. "If you're offering, I'm rather hungry now. Any worship, metal, or... hmm, anything you want to give me, would be very welcome. I'm not picky."

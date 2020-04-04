@@ -1,1 +1,0 @@
-[Nope, it's on him. And he ain't got no pockets.]

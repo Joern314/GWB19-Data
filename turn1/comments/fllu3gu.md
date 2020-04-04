@@ -1,5 +1,0 @@
-At the revelation, the metallic goddess went as still as a statue, her tail frozen mid-lash, her eyes fixed on HER earrings removed from her ear. More bubbles of scalding air, and small embers flicked around her nostrils and hatches, then suddenly she moved. 
-
-Triangular fangs of steel, like a sharks jaws suddenly snapped open and closed towards the grin, as if to bite the tongue clear off in blind instinctive rage. Yet something slowed her from closed her teeth entirely, from completely severing it like she had with that bloody scale-stealing wretch, and instead she stopped just short, teeth digging into the tongue slightly painfully. Why did she do that?   
-
-More immediately it took her a second to remember she was standing with the Thieve's tongue in her mouth, and hastily closed her lips and stumbled back, extricated herself, swallowed her earrings again, and stood stunned, mind reeling. How had she not noticed that? Had she stolen something else? Why would she tell her? Was it theft if she got it back immediately? Should she have bit the tongue clean off?

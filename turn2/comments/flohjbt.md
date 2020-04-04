@@ -1,1 +1,0 @@
-"Thanks! That's so kind of you!" Thool proclaimed happily. "We've never met a storm god or a god of heros before either." Thool said. "I think we will get along well".

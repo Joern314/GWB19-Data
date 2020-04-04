@@ -1,3 +1,0 @@
-"Finally. I've been curious how you will manifest," Lyva chuckled, a warm clanking sound that rumbled through her form where she was gliding over the waters, admiring her reflection. "Though you are little hard to see, little one, but thankfully I have a mirror."     
-
-She ducked lower, slithering feet above the surface at high speed, like a shining comet, and twisted upside down to peer at the reflection, potentially dropping her new passenger into the brine.

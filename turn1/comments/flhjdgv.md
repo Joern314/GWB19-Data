@@ -1,1 +1,0 @@
-Oryllia set her hammer down behind herself, questioning Sarah. "If you already have a focus, then what is your will?"

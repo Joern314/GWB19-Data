@@ -1,1 +1,0 @@
-Sarah listened, taking care to remember the goddess's words and attempt to understand them. "Teach them, guide them... I think I am starting to understand." she said after a few moments, taking a sip from the goblet for the first time. "What about magic? Do they even know what it is? Can I teach it to them?"

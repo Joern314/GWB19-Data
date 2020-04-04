@@ -1,3 +1,0 @@
-"The voice had sent him on edge, which was the correct reaction. But only summoning winds and lightning... wasn't that underestimating his potential foe? What if the voice was not alone? What if the voice was invulnerable and omniscient? Perhaps the voice had been the one who *ate* this skull...", the voice whispered.
-
-As Kain turned around he spotted a small lizard creature, colored in a weird  pattern of yellow and black. Maybe to warn predators that it was poisonous. Maybe it was faking being so dangerous. There was no way knowing that. "So it would be better not to eat the unknown creature", the voice completed.

@@ -1,5 +1,0 @@
-Lyva was thrown onto the planet itself, finding herself wailed on by great fists that actually hurt. Not as much as somethings, but far more than flesh against metal should. So again a crack opened, and the hilt of a blade suddenly shot from her chest, punching the gorilla in the nose while her tail slipped through the earth, wrapped around his ankle, and flipped him over.   
-
-&#x200B;
-
-"ENOUGH!" Lyva snarled, darting upright as she drew her blade fully, a long heavy blade of wrippling colours that seemed to flex and breathe through holes along its edges. Above her, the metal flails chains broke off from her and seemed to loop around each other, spinning faster and faster on the Gorilla's other side as suddenly a portal opened within them, vast and unlike her usual hoard, completely empty. Greed like a black hole suddenly pulled on Sunda from that side, tugging and pulling at him away from Lyva and towards what seemed like her extradimensional stomach.

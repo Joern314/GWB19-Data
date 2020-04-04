@@ -1,3 +1,0 @@
-Prismari eventually approached rictus after the shock of what transpired finally subsided for the most part. he like lyva would welcome the offer to be taught a thing or two. But mostly he needed to make sure he did the right thing. 
-
-“Hello Mr ! I’m Prismari god of heroes ... I made the mountain that looks like humans on the continent you started.... Id love for you to teach me a few things... and maybe talk about what happened with Azrakal “ Prismari said politely he seems visibly shaken up at what he and lyva had done

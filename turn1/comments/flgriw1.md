@@ -1,5 +1,0 @@
-"Of course I'd bring you back, you are very valuable, and I always repair my things when I break them." Lyva smirked, and watched eagerly as he created his first creation. Then broke into laughter as he revealed the crystalline statuette, giggling so hard she lost her grip on him and drifted off a little, wiping mercurial tears from her eyes.     
-
-"A fine first creation, but... do I really seem so egotistical that I'd want a little diamond me?" She chuckled eventually as her fit subsided, tail pulling the diamond into her grasp. "Because... well, I do, I *love* it, but it sounds awful doesn't it? I'd love some more gems if you want to practice. I can create any metal, any armour, any pendant I desire, but I can't do crystals so some to decorate would be welcome."     
-
-She opened a hatch in her abdomen, a jagged maw into her pocket dimension, and stowed away the statuette before pulling out a glittering silvery armoured shirt and a couple of other items of armour. "I kept your things safe too of course, just in case you want to let all the other gods who'll find us know how terrifying and protective my consort is."

@@ -1,1 +1,0 @@
-The entity watched unblinking, though it's eyes moved energetically as the man mentioned the metallic dragon, perhaps in recognition.  "(Incomprehensible gibberish)" It rumbled.

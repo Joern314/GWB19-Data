@@ -1,9 +1,0 @@
-In retribution for the death of his people the Sorcerer finally made time to show the mortals why it was a bad idea to piss off the god of death. He had raided the Outsider's library and brought with him some of the most titanic and destructive pieces of magic the Outsider had ever created. Ironically it was called the "Light of Protection". It was a magic that protected by destruction, the destruction of those that caused there to be a need for protection.
-
-So as the Sorcerer wanded to the capital of Ras'shalas Empire, whenever he encountered one of the followers of Azrakal he showed them the light of protection. A searing and burning bright ray as if the sun itself had come down from the heavens to burn everyone to cinders in the Sorcerer's way.
-
-Whomever looked upon the mask the Sorcerer was wearing was hit with the searing light flooding out of the masks eyeholes and gaping mouth. And their screaming, agonized face was added to the mask. The mask's faced shifted one to the other to the next, often forming a patchwork of different faces who had met their end when they encountered the Sorcerer.
-
-At the gates a beam of light seared itself through the metal and wood giving way for the god of death. Upon entering the city he turned every last drop of blood not running through a mortals veins inside the city to water.
-
-He made his way through the crowds, burning people to cinders left and right until he stood before the throne of Ragos the third. With little to no fanfare he seared everyone to death who tried to stand in his way. Then he wrapped Ragos in chains and dragged him through the streets of capital, through the towns of his empire, over the whole of the continent for everyone to see why it was a bad idea to rouse the Sorcerer's ire and tossed the soul into the Rift and the Endless Woods where Ragos would be the victim of his own nightmares.

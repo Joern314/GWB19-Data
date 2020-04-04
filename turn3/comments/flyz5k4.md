@@ -1,1 +1,0 @@
-"Nope! Just wanted to see what you would offer." Gon said as a beautiful woman made of lava peered over his shoulder and winked as Gon pulled a sword of molten Earth from behind his back holding the tip towards her.

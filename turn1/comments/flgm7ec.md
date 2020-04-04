@@ -1,1 +1,0 @@
-Oryllia’s form appeared in a flash of violet flames, her voice booming, “I hear a contract being made. I see that you are both making a deal. May I overseer this current transaction, as it is within my divine jurisdiction?”

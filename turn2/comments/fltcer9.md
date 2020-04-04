@@ -1,3 +1,0 @@
-Sarah's eyes narrowed. In Malaphet's way, thousands upon thousands of divine shields appeared. Sarah then focused on Kain and Prismari, engulfing them with a strong shield to defend them from Malaphet's attacks.
-
-In the Colosseum, Sarah was fighting left, right, center and behind. Many of the cultists threw down their weapons and were immediately surrounded by her divine shield, while the others tried to fight her. Sarah was far too much for them, however, as she outnumbered them at least five to one now that many of their fellows were either defeated or have surrendered. Then she reached the head priest and punched him square in the face.

@@ -1,1 +1,0 @@
-"Sometimes, a god lacks a focus. A certain drive. Those that lack a clear purpose wander aimlessly. Seeing as you're new, maybe I could help you in finding your drive."

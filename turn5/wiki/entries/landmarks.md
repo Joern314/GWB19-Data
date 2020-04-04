@@ -1,2 +1,0 @@
-# Landmarks [The World]
-

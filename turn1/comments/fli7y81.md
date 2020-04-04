@@ -1,3 +1,0 @@
-A metallic brow raised mischievously as she explained herself, "Weaving huh? Do you have a loom as well as the hammer?"
-
-"Terrible jokes aside, it is a pleasure to meet you and welcome you to my universe Oryllia." She curtsied, a skirt of chains and jewels tinkling as she did so, "I am going to begin building a planet for life and lovely yummy souls, if you want to watch. Have you ever eaten mortal souls? They're the best!"

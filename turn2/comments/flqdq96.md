@@ -1,1 +1,0 @@
-"I don't see how magic and heroes are that close to each other. If something is connected to heroes it is the sphere of death. Especially with the metaphysic you blanketed around this reality. And a hero's story is never finished until they die." The Sorcerer answered bluntly.

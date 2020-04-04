@@ -1,1 +1,0 @@
-Thool looked up curiously, having never seen a creature like this one before. Moving his torch by it to get a better look, Thool squints as he tries to decipher what he's looking at. "Hello there! Would you happen to know how many other beings there are here? I keep meeting so many strangers!"

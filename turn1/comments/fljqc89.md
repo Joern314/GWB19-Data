@@ -1,3 +1,0 @@
-The egg was, as far as Lyva could tell, a big and round sphere of solid stone, with a network of metal veins reaching from the surface down into the core. There was no trace of divinity at all, except the ambient powers of the mother snake.
-
-The snake suddenly shifted, bending and curling. Her body slammed into the smaller goddess, flinging Lyva in some random direction. **"Get close again, and I kill."**

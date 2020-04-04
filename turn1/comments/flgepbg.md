@@ -1,3 +1,0 @@
-Three more eyes moved into focus onto the dragon as the entities nebulous form moved, oddly the eyes stayed still while the flesh that had been carrying them continued to swirl and disappear into the beasts bulk. It showed no sign of comprehension but also made no move to envelope the dragon goddess and most of the teeth or fangs that lined the body seemed to stay away, though whether that was happenstance or not Lyva couldn't tell.
-
- "(incomprehensible gibberish)"  It rumbled slowly.

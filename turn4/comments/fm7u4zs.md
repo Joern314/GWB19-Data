@@ -1,5 +1,0 @@
-Lyva's spirit appeared within her hoard before after a short time, once she had hidden herself away within the heart of her volcanic islands once more. Within her hoard her spirit looked not metal, but rather made of an orange bright energy, somehow fluid and solid at once, and more organic than usual without the usual seams, hatches and plates that adorned her exterior.    
-
-She hugged Prismari and stroked his hair soothingly, a trickle of orange on her cheeks suggesting her own tears.    
-
-"Why is what true? There's no truth god here, we don't need to accept this. So maybe his blood helped make you- so what?! If anyone helped raise you it was my mother, wasn't it? You've known me since I was young and unwise, all the way to now that we're old and unwise." She chuckled sadly, leaned close and pressed her forehead to his, bright eyes meeting his colourful ones, "As far as I'm concerned, we're family, lover, and you're welcome to think of Celastra as your kin too."

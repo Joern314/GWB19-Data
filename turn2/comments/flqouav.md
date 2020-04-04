@@ -1,3 +1,0 @@
-Prismari began giggling and grinning  “ it wouldn’t be the first time I was inside a goddess!”  he then looked over the new goddess still holding the grin and reverted to his colourful  blob form 
-
-“You are a very pretty goddess!  So you made this beautiful sea Prismari takes it... oh I’m Prismari god of heroes what’s your name !” The blob squeaky asked as the gods new form seemed more suited for the ocean then that of a human

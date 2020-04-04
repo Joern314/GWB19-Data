@@ -1,1 +1,0 @@
-[ those are techs of the Age of Cities. And they are free. You don't need to pay for them. If you want advanced tech that puts your mortals ahead of the others, buy stuff from the Age of Empires]

@@ -1,3 +1,0 @@
-Lyva tried to cross her arms sceptically, but found that very difficult as a dragon. How could someone be so self absorbed as to not know who their lovers were? She couldn't imagine caring so little about the world beyond ones self.   
-
-And so she went quiet and hugged the sun, enjoying its warmth, but began to inspect the intruder with godsight, puzzling out exactly what the serpent was metaphysically.

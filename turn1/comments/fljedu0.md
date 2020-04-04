@@ -1,1 +1,0 @@
-"I am the goddess of protection, Blood God. "Stealing", as you have put it, from beings like you is nothing sort of the purpose for which I exist." she pointed out, becoming tense. A battle was a thing she didn't want to happen, but if it must happen, so be it. "So, you say I am taking things from you, all the while taking my things from me? How hypocritical."

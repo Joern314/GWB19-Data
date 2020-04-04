@@ -1,1 +1,0 @@
-Kain having just arrived wasn’t taking any chance so he left. with a quick bow of his head and a goodbye with god speak he thunder stepped away leaving a lighting imagine of him self in the process. what ever the hell this creature was He wasn’t sure but it was definitely above the amount of effort he wanted to give for now anyway... perhaps he should warn the other gods

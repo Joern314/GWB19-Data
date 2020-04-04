@@ -1,4 +1,0 @@
-"I suppose you could call us a family". The only man said, pondering the thought. We travel together, we eat together; we are one unit. But perhaps a better way to describe would be aspects of one being? I have not had much time to contemplate our existence you see."  
-
-
-The old man then changed into a beautiful young woman with hair made of gold, the torch's fire extinguishes and the piece of wood grew into a small box. The woman took some of her golden strands of hair and quickly strung together an instrument. "There are four of us, we change and as we do, so do the seasons". Upon declaring this the trees quickly regained their leaves and began to bloom among verdant greenery. If what you say is true, we are grateful that you have made this world. But, we have matters to attend to elsewhere". The woman then walked up to a tree and right through the trunk as if it were a cloth in a doorway.

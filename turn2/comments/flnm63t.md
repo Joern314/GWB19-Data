@@ -1,3 +1,0 @@
-"My mother, aunt and uncles were born from various celestial bodies. Suns, planets, black holes. They took the form of great serpents moving through space, unless they needed to deal with other gods and mortals." Lyva explained, shrugged, and suddenly became her other form- a massive sinuous golden dragon, almost serpentine but for some small clawed limbs.    
-
-"This serpentine goddess is very similar. I don't know precisely what my relation is, if I do have any, and so cousin is my general term. She does not even have a name, the beast, she simply sees the world as "me" and "not-me", even her egg. She is due to lay an egg, but intends to wait until she considers it safe." She continued, coiling around herself to take up less room.

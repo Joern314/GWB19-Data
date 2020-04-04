@@ -1,3 +1,0 @@
-The eye she poked felt strange, simultaneously hard like iron and soft as jello while still malleable to be mildly indented at the same time, but also incredibly hot, hot enough that if she weren't a god she'd likely have burst into flames long before she touched the eye. Then his form shivered as he blinked that eye and it withdrew into his mass.
-
-"(friendly gibberish)" Vibrated Malaphet as several tentacles surged forward, poking at the Sea Knaves form

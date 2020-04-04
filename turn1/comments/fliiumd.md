@@ -1,3 +1,0 @@
-"Huh?!" Lyva's fury was interrupted by the lack of a satisfactory squelch, and the growing threat. This creature was divine. This creature was divine because of her!    
-
-She flailed as she was bit, avoiding damage by letting the fangs simply pass into two small portals she opened to her portal dimension. That was a surprise, but she had no intent to loose her hoard, to let this abomination steal any more from her! And so she expanded the portals, sawed her entire body in half, and suddenly two identical half dragons lunged and slammed on either side of the beasts skull, bludgeoning them with tons of burning steel.

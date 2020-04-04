@@ -1,8 +1,0 @@
-##The Glimmering Kingdom     
-
-Lyva was not to let herself be upstaged by Azrakel, and she looked with distaste on his barbaric empire. So she went north of the great forest where humans and Apokyphes had been born into the world, and spread forth seeds and fungi she had kept locked away inside her hoard.     
-From her power, a great vibrant jungle grew, an oddly plant centred existence with few predators, though the forest floor was always cloaked in darkness and home to the screams of the night. Above, and in the clearings, food was plentiful, and so she led a delegation of Apokyphes here and taught them how to build, grow and cooperate.    
-It was a society of debts and trades, with their markings precisely tracked to keep track of who owed whom exactly what, and those who could not pay back were enslaved. Yet Lyva kept them from blood magic, and even taught them something of metalwork, helping them to create golden rings to wear on their horns as she did.      
-The kingdom was known as **Gelfin**, and while one large city was built of stone, most of it expanded as tree houses throughout the canopy, with their worship of Rictus helping them learn to hunt. As an experiment, Lyva let them elect their rulers, then uplifted each as a Minor God of Administration as they ended their term, like spectres haunting the palace to advice those who replaced them.     
-
-[-4 Acts to Bioform Jungle, detailed next turn]

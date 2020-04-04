@@ -1,4 +1,0 @@
-Sarah found it difficult to have two conversations at the same time but didn't know what to do. After all, she was in one place. *but does it have to be so?* she wondered. *after all, there are some gods here with a form completely different from mine. If we're not bound by shape, then...* deep in thought, she imagined herself and willed her form to split.
-She blinked. before Gon Gryn, she stood, yet she was also here. It was a weird experience, like controlling two arms without feeling how they are connected, but she supposed it was a useful ability, and she will probably get used to it. 
-
-"I apologize. I am still new, so it takes time for me to grasp things," Sarah said, now taking a closer look at the god. "As for your questions, I was created with those chains, as they symbolize my role as the Goddess of Protection."

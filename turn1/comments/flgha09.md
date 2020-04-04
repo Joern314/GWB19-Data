@@ -1,1 +1,0 @@
-It wasn’t long for a god before kain came across some sort of twisted divine animal “you there little one! Do you speak at all.” Kain asked as he created several small ball lightings in between his hand

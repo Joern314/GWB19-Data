@@ -1,6 +1,0 @@
-[-3 Acts to compete mortals Apokyphs](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnda5p/)    
-[+4 Acts for Prompt: Ferrick, Minor God of Corrosion](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqg9lg/)    
-[6 Minor Gods are created](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flqj7qf/)     
-[-4 Acts to Bioform Jungle](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flthyar?utm_source=share&utm_medium=web2x)     
-[An ancient kingdom of Apokryphes rises in the Jungle](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flthyar?utm_source=share&utm_medium=web2x)     
-[-4 Acts to Bioform Oceans, will detail next turn](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fltmu9x?utm_source=share&utm_medium=web2x)

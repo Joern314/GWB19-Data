@@ -1,1 +1,0 @@
-"I suppose we shall get along nicely then." Sunda conceded. "What of your charge, is he one for plans and schemes?"

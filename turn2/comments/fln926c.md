@@ -1,3 +1,0 @@
-"Hmm, I'm glad we don't have such masochists here. They are too destructive for my tastes. I prefer to use what I have, even when destroying it. So butchering things more neatly would help me in this, and help me next time I need to flay him. I highly doubt that's the last time that blood god's going to try and steal from me." Lyva mimicked his bow, and sat down beside him, opening a hatch in her abdomen to remove a dead lupine creature, and a ridiculous number of knifes.     
-
-"I'm happy to hunt more if you want to show me from step... zero, but I brought this if you don't want to," She explained, setting to organising the dead water wolf and array of knives.

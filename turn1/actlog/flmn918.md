@@ -1,1 +1,0 @@
-\-3 from /u/downsmi1 and -2 from /u/CruelObsidian to create a [moon](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flmlr89?utm_source=share&utm_medium=web2x)

@@ -1,1 +1,0 @@
-Gon followed her immediately through the portal with a broad grin. He had yet to set foot in another plane in this world and the prospect of learning about hexes was very enticing.

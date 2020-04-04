@@ -1,3 +1,0 @@
-Lyva stumbled as she saw his plan, strong enough to kick through the stone but off balance. She vanished in a flash to light, teleporting to the room below even as she fell on her face bounced upright, and continued to chase him, flail swinging like a lasso.
-
-Now outside of the age of myths, she felt less... physical than before, not of the same plane than earth and mortals, but she hoped that if she could get her hands on Gon, she could somehow ensure he didn't teleport away.

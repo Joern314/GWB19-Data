@@ -1,3 +1,0 @@
-Prismari stayed rather silent watching lyva and her reactions as she walked through the village, he could tell it was upsetting her and when she returned for comfort he in his blob form embraced her fully being as warm and loving as possible 
-
-“Your not a ghost... I can still see you, I can still touch you.... and we may be old now. But my love atleast we are old together... not everyone god or otherwise gets that chance.” Prismari said being rather sentimental

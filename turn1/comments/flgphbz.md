@@ -1,1 +1,0 @@
-Sarah saw the tentacle retreat from the corner of her eye, becoming difficult to tell apart from the stars around it with each passing moment, but she couldn't follow it even if she wanted to, trapped as she was in a conversation with Oryllia.

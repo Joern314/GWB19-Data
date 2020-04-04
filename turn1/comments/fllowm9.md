@@ -1,1 +1,0 @@
-"(Understanding gibberish)" Malaphet vibrated back, several more eyes of various colors coming to peer at the Knave, someone who could speak with him normally was a rare treat and seemed to have garnered much of his attention,.

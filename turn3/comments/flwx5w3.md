@@ -1,1 +1,0 @@
-\[I... Did not know that this thread even exists until now. How do you know when one thread ends and another one opens? It's really frustrating. Also, what happens here?\]

@@ -1,2 +1,0 @@
-"You're very cute." Lyva smirked as she faced the mask and madness lurking within. "Happy now?"      
-"Oh, or did you mean about something pulling better heists than you? Because I do want you to be number one, but we need to stop these thefts of our power for that, don't we, *Miss Second Place*?"

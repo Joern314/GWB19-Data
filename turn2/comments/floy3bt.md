@@ -1,1 +1,0 @@
-"That is a very interesting concept, maybe you can teach me to move these old bones sometime!" The old man responded excitedly. "Dance? Well I have never seen a tree dance before. Sometimes with a good amount of wind they sway, but trees do not dance in the same way you or I might. You see, trees are alive, but not in the same way that mortals are".

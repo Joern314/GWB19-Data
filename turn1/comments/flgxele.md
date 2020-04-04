@@ -1,3 +1,0 @@
-“Oh no I didn’t it’s why I went for that approach . It’s a gift from my father side of the family I inherited his weird limbs .” Kain said with a light explanation and then began think why she would think a planet could be an egg 
-
-“ I suppose that make sense from what Prismari told me of your mother... he speaks highly of her... and I would hope you would wait a few more year form having kids .... but I’d be a hypocrite if I said that.” He said with a grin

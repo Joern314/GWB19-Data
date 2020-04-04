@@ -1,1 +1,0 @@
-“I provide a service for you, and you provide a service for me. My service to you: acting as your guide, and your service to me: whatever you deem appropriate. It’s simply mutual benefit. It never hurts to have some help, now does it?”

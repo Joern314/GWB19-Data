@@ -1,3 +1,0 @@
-As Oryllia appeared before Malaphet several of his greater eyes rose from within his bulk to look at the Witch Queen with interest. "(Unintelligible Gibberish)" the eldritch beast rumbled, perhaps in greeting. Malaphet seemed more awake now then when Oryllia had last spoken to him, his eyes more vigilant and his many limbs moved faster and with more responsiveness then they had.
-
-"(Unintelligible Gibberish)" he rumbled again.

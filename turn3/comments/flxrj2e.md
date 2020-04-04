@@ -1,3 +1,0 @@
-Oryllia was dwelling within her forge's Atheneum, reading through old tomes of hexes and incantations when Lyva appeared before her.
-
-"Ah, Lyva. It's nice to see you again. I wasn't slumbering. I was at work on my anvil," she said, setting her book aside. With the snap of her fingers, a chair appeared before them, nicely embroidered with silver lining around the wood and silken padding. "Have a seat, we can talk. What is your question?"

@@ -1,1 +1,0 @@
-"Hmmm, that is hard to pronounce" Thool said hesitantly. "Well, we will make you a forest absolutely. I have never interacted with mortals before as I was born not so long ago. Do mortals like trees?"

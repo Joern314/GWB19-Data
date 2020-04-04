@@ -1,3 +1,0 @@
-"Wonderful. I just wanted to check, some gods are opposed to such things and I am... close friends with a goddess who enjoys betting on things." Gon nodded happily.
-
-"It has been a pleasure meeting you, Shilo. Before I go, I should let you know that if someone crosses you or harms you in anyway and you desire vengeance, don't hesitate to shout. It is my... business to carry it out for others if they request it." Gon laughed and continued after a moment. "Of course, I have a feeling you won't need my services, but I am still inclined to offer nonetheless."

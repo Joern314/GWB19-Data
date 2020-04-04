@@ -1,3 +1,0 @@
-"Oh cyclopian one, the nameless pleasure is all mine, I am yet young but already when the gods see me I hear the many names they have for me, not in their words but in their recoil. I am the Rhythmic One, the 99 Limbs, and Yashqal. I was born of movement, and am sire to that non-euclidean movement at the core of all things. My wish is to make all of creation erupt with dance. 
-
-"but I have to admit, I am apprehensive to create, being so young."

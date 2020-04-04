@@ -1,1 +1,0 @@
-Despite her anger and announcement to kill Gon, the snake just went back to her original position, closing her eyes and going to sleep again.

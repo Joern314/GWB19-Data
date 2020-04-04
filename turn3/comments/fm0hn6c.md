@@ -1,3 +1,0 @@
-"As... Large as your..." Gon kissed her before he responded with one eyebrow up as Nkom slunk into the room quietly. "...Mature, huh? You and Prismari sure do change a lot."
-
-"Purr... I see you managed... purr, yes. Emerald dress?" The gem lion pondered for a moment, before bounding up to lick her with a sandpaper like tongue made of rubies. "Measurements... purr... do you have a preferred texture mistress Lyva? The making process shall take just a few moments of your time."

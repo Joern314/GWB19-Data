@@ -1,1 +1,0 @@
-"I look forward to our future, Azrakal. I will begin work on a new incantation for your empire to use," said Oryllia, the runes on the hammer glowing brighter than before as their pact was sealed in curse and blood.

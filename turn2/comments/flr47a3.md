@@ -1,5 +1,0 @@
-"I am Greed, Sarah." Lyva stood, her tail lashing, teeth bared in a sharklike smile. "I want everything. I don't want something so destructive as to destroy everything, or so exhausting as to command everything, so I decided I want to own everything."    
-
-"I forged the heart of this planet from my treasures, brought it's mantle with a trade from the stars, and its crust... well, you saw my exchange for it. I bought the skin of Power, and used it to stabilise and help the world. I built and bought all that it is made from, therefore it's mine." She explained eagerly, then noticed her confusion and knelt again to meet Sarah's eyes.      
-
-"You're welcome to work on it. I hardly mind gods sculpting continents and forests and beauty on my world. But I'm not going to let anyone destroy it or steal it or threaten it. I think we can cooperate, don't you?"

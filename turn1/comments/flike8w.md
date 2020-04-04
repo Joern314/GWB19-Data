@@ -1,1 +1,0 @@
-With a wink kain zapped away with a wave saying good bye. He would experiment with god speak in the future if the kids project of teaching this thing to speak didn’t work... like kain assumed it wouldn’t

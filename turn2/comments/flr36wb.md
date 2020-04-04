@@ -1,5 +1,0 @@
-Sarah gave her words some thought. Should she try to unmake the curse? was that possible? Would Oryllia listen to her and destroy the curse if she asked? And if neither worked, what kind of action could break it? 
-
-Sarah didn't want mortals to hate the darkness. It would break her heart if they would regard her with hatred even more then if they would fear her. 
-
-This depressing train of thought broke quickly courtesy of Lyva, to Sarah's relief. "I want to do a lot of things, I think. Teach mortals how to defend themselves, make a cult or something similar to worship me, teach them not to fear the darkness, maybe even making my own race, but I am not sure about that one just yet... Excuse me? What do you mean by 'owned everything'?" Sarah was broken from her slight rambling by the goddess's weird and sudden question.

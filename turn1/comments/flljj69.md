@@ -1,2 +1,0 @@
-Malaphet's bulk rumbled in surprise as the rain bubbled back into his form, and even more so when the rain cloud spoke back to him in hit own language.              
-"(confused gibberish)" He rumbled back at the breeze.

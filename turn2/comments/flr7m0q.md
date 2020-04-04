@@ -1,3 +1,0 @@
-"I came here before anything else. I stirred things up. I caused this." Lyva argued eagerly, "It was created for mortals and gods, but I set things in motion, I invested in nothingness, and so I claim all that emerges from that nothingness. If other gods want to argue, they can, that's why I ask, that's why I say *Welcome to my universe*."     
-
-She paced around Sarah as she chattered, still warm and cheerful, more enthusiastic than before, "Don't think I'm a tyrant, or a warrior, or some stale force trying to smother and hold everything. I'm a merchant. I want to invest, to grow, to talk and trade, preferably without blood and gore. I want everything because I value everything, it's all INCREDIBLE!"

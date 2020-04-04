@@ -1,1 +1,0 @@
-"Hello! We're over here!" A young voice called out from the cover of a canopy of trees. "God of Earth? I think we will be good friends. I am Thool, god of seasons and trees. I suppose I'm a *native* you could say. I was born of the cycle of days. Are you also from here too?"

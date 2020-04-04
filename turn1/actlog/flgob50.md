@@ -1,2 +1,0 @@
-[Planet foundations are placed: Core and Mantle](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flgo7nd)    
-[-3 Acts to terraform a long mountain range, will figure out where later](https://old.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/fljjuoa/)

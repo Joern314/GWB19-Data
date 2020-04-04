@@ -1,1 +1,0 @@
-The eyes watched unblinking as Prismari spoke. "(Incomprehensible gibberish)" It rumbled in reply, maybe there was a hint of Hello in there, but Prismari couldn't be certain

@@ -1,3 +1,0 @@
-"Ah, a balanced approach, then. That is good too. I do not know how many different mortals will appear here, but do you suppose you will make a competition between them all? Some are certain to be at a disadvantage in certain sports and yet excel in others." 
-
-"Oh and - before I forget - I should ask... are you against betting on these competitions?" Gon added as he tilted his head to one side and crossed his arms, but maintained a smile.

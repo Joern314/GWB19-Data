@@ -1,2 +1,0 @@
-Lyva cheerfully perched on the chair, tail curled around her, and glanced around with proud eyes.     
-"Thankyou. I'm most impressed, all those eons at the anvil? Without starving yourself? I'd love to see what you created. I simply slept in my hoard below, away from the noisiness." She leaned forward, "Which actually brings me to my question- why did you make the screams in the darkness? I still can't quite figure out how you tick, and Sarah seems an odd choice for a first target of hexes, she's no threat."

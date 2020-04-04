@@ -1,1 +1,0 @@
-[Kazish and Light Trees are supernatural, the rest is mundane. Total act costs now 8 acts]

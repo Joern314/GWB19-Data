@@ -1,1 +1,0 @@
-“I am simply presenting myself as an ally. You are clearly very busy, and I would like to leave you to your devices. However, if you need help with anything, come to my forge. We can make a deal.”

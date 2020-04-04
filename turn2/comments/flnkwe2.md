@@ -1,3 +1,0 @@
-Malaphet had been in the presence of mortal worlds before, though normally for only a few minutes at a time, most often his appearance gave him a flood of energy from there terror as the mortals realized they and their gods were helpless to stop him from devouring their planet, but this time, despite him not yet eating the planet, he had been very active, far more so then normal. Still nothing from the mortals, with a shudder comparable to a sigh Malaphet began to examine the created universe, both in and out of Godsight as he searched for where the power he should have been gaining had been siphoned off to.
-
-{ /u/Joern314 malaphet is looking for the missing power and where it's headed off to\]

@@ -1,5 +1,0 @@
-Lyva gasped as she jumped back off him, eyes widening with... well, greed at seeing an enchanted valuable weapon. But this wasn't the time to hoard things, and she so herself, opening holes and breaking and recombining herself to dodge through the blades as a blob.    
-
-Sadly it only took one hit for her trajectory to go of course. When a charged shard touched her, she flinched naturally and bumped into an icy blade that made her harder, and the grit in her system wouldn't let her dodge as she wanted to. 
-
-"Enough! This is the worst sword!" She snapped, in frustration as she had to dodge back as a blob for the umpteenth time, then suddenly vanished in a flash of light. A change in the air followed, and Prismari's storm sphere warned him of the dense object falling towards him as Lyva turned to dark heavy iron, grains of dark iron sand flying up to form a blade in her hand, though once more this form had hatches and seams on her.

@@ -1,1 +1,0 @@
-Sarah ran to Azrakal, standing near him as the draconic goddess left. "Do you need my help?" she said, too low for anyone beside him to hear. "If you do not just say so and I will leave."

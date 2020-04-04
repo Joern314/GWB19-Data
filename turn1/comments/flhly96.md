@@ -1,1 +1,0 @@
-Sarah's eyes flashed. She took a step forward, her gaze scorching, her hair flowing around her like river. "Do not presume to know what my attitude toward the mortals would be like, Blood God. If you desire to hurt them, then know that I will do my best to stop you!"

@@ -1,1 +1,0 @@
-Lyva cautiously looked over her with Godsight, curious as to the state of her egg, and how the snake had handled the eons waiting. She was much closer in size to the serpent now, time had granted her that much, but she feared what holding in a child for that long might do to mother or child.

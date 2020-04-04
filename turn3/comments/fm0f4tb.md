@@ -1,3 +1,0 @@
-Gon continued to struggle; trying to get one hand free. He was really only struggling playfully at this point, a point that became fairly obvious as he broke out in laughter.
-
-"She, uhn, calls all of us deities mother and father. If you want to argue it with her, feel free. She is a bit, uh, airheaded, I should warn you. But no, that is something she decided herself." Gon replied as he tried to get a hand on one of her tails. "When did you get two of these?"

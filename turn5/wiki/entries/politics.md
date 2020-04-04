@@ -1,2 +1,0 @@
-# Politics [None]
-

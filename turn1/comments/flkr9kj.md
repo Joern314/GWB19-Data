@@ -1,1 +1,0 @@
-Sarah's eyes grew wide. "What are you doing?! Do you seek to skin him?!" she shouted, running toward them. She wasn't sure what to do, but at this point she din't care.

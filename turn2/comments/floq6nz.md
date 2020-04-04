@@ -1,1 +1,0 @@
-Sarah bowed her head slightly, not in shame, but in acceptance. The insults hurt a little, but she didn't show it on her face. "Very well." she turned around and walked away, deciding to seek out the mortals instead of simply leaving.

@@ -1,3 +1,0 @@
-With a great heave Sunda darted forward, charging towards Lyva. His form shrank down, slimming down into a single serpent that quickly slithered up one of the chains, somehow not being flung off.
-
-When he reached her he changed again, a large gorilla that grabbed Lyva in a flying tackle and brought her down to the ground. Once on solid "ground" again he proceeded to lay punch after punch against her, trying to keep her down.

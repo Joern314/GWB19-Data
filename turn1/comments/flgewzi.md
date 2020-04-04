@@ -1,3 +1,0 @@
-Kain was sent completely on edge the god eater never spoke until it did so maybe this being was more trust worth “ oh little voice in my head that reminds me of my family. would you like to have a little chat... or are you going to just be cryptic and worrisome.” 
-
-Kain said with a smirk and as a precondition created an orb of gale force winds and lightning around his body just incase what ever was speaking was closer then he assumed

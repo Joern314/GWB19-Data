@@ -1,1 +1,0 @@
-"Your old world sounds not so great. But maybe we can make this one better, then".  Thool said hopefully. "We would be honored to bless your lands with lush forest. Does this land have a name?"

@@ -1,1 +1,0 @@
-Oryllia greeted the newcomer, saying, "Hello. I am Oryllia. I am the goddess of Hexes and Contracts. If you need anything arcane done, come to me, and we can *make arrangements*."

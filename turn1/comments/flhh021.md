@@ -1,3 +1,0 @@
-“Attachment to the past and other can be a  a good thing from time to time or bad . Family names mean families can grow and learn for past mistakes. But no you don’t at the moment seem the vengeful type but I’ve been wrong before l.” Kain said with a shrug 
-
-“ plaything... I suppose that could be a word for it. As for why we are tied I saved him after he was lost in the void it seems to have tied us together for the moment... strange things isn’t it the three of you all here at the same time... almost seems like fate came into play.” Kain said with a grin

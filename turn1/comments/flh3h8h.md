@@ -1,1 +1,0 @@
-[ everything is fine, the planet's interior didn't require a terraform, i consider this more of a fluffy backstory ]

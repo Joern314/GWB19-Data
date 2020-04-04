@@ -1,1 +1,0 @@
-“Very good ! “ prismari clapped “ I want you to practice saying hello for a while after I leave ! Another word would be your name..... oh crap what’s your name !” Prismari asked as he put a hand to his face how could he be so rude as not to ask

@@ -1,3 +1,0 @@
-The punch hurt only momentarily, but Sarah was thrown back quite a distance. At his words, Sarah shot back. "Well, if you are Power and I am Protection, then let us see which one is stronger!" with that, darkness seeped into the area, engulfing the land and obscuring the sight of all within its reach. "You called me "brutish" earlier, but can you avoid that description yourself?" her voice asked from within the dark. 
-
-[I think my goddess just summoned a paradox]

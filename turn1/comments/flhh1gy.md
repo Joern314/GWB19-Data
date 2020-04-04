@@ -1,1 +1,0 @@
-"I will keep it in mind, thank you." Sarah nodded.

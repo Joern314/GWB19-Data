@@ -1,1 +1,0 @@
-“There was a time when I was a godling yes, thousands of years ago... I didn’t mean any offence in the matter I was just asking if your a young god unlike my old self . “ kain said with a grin  he liked the attitude Sunda had

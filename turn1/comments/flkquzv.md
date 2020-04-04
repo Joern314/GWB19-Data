@@ -1,1 +1,0 @@
-"What I love... I love the darkness, its purity and power. I love the power I was given, for it allows me to create and protect the thing dear to me, and as of right now, I most certainly love to dance." she answered, taking a little time to adjust to the increased pace of the dance.
