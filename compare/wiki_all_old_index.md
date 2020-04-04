@@ -52,7 +52,14 @@
 ### Nkarlen, the Cave Goblins
 ### Yashool
 ## Nations
+### The city of Raha’stal
+### The City on the Well
+#### Civil Defense
+#### The Essence Economy
+#### Gwanyin Technology
+#### Subject Villages
 ### Enkenea
+### Herding the Masses - The Holy City of Thyval
 ### The Magocracy
 #### Epoidos and The White Gates
 ### Mogimal
@@ -78,8 +85,10 @@
 ## Divine Law
 ## Magics
 ### Arrow Spells
+### Blood Empowerment
 ### Blood Storage
 ### Magic Arrows
+### The Mindburn spell
 ### Petrification Magic
 ### The Sorcerer's Runes
 ## Metaphysics
@@ -120,10 +129,12 @@
 ### Vanilin
 ## Materials
 ### Kindlscal
+### Malaphine
 ## Regions
 ### The First Continent, Primus
 #### Blood Plains
 #### The Echoing Jungle
+#### The Great Canyon
 #### The Great Salt
 #### The Hunting Grounds
 #### The Kiln Isles

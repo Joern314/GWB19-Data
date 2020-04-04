@@ -534,6 +534,99 @@ They have a naturally agile and skinny physique allowing them to slip through th
 
 ## Nations
 
+### The city of Raha’stal
+
+Over the years as the beast slayer Rahab strength and night grew so to did the village of the prismatic plains
+
+Soon rahab had a grand ambitions. He envisioned at the base of the mountain path leading to the pilgrimage of heroes... a grand city that could one day house every hero in existence... and he would lay it’s foundation 
+
+Using the bone of the fallen fallen dire beast he had slain he created the first of many building what would one day in the future be called the hall of heroes.... but for now it was just rahab house. His people fallowed his lead and created there own house each with unique  architecture... no two looking the same. 
+It was easy to tell those who where heroes with in the city for there house almost always included the bone of dire beast in there construction and so the city of Raha’stal was born 
+
+Over the years as Raha’stal grew other tribes of the prismatic plains cane to join the every growing city of heroes,  attracted by it tails of mighty mortals who could grab ahold of possible and protect the ones the love 
+
+That wasn’t the only reason the population of Raha’stal boomed no one of its hero residents in the first half of its Existence named Umah the green handed discovered a great way to feed the nation with the technique of Moderate Farming(-4 for moderate farming ) with a little helping hand of Prismari even if she didn’t know and was accredited with the creation. 
+
+Mortals also stayed for the general sense of community, lead by what where  once the zepho tribe, yet it had become the zepho guild of heroes , whom welcomed  any and all into its ranks. So long as they could uphold the ideas that all must who join must help the weaker members of the ever growing city
+### The City on the Well
+
+The Worshipers of Mair have built a pale reflection of the Temple of Life, and they have begun to build a city around it. This City's Name is Gwanyin. Immigrants were initially drawn to the City by the promise of Life Essence. They were made to stay within the city by the easy access to life-saving Essence, and the comforts born of the City's rapidly advancing technology.
+
+#### Civil Defense
+All men and women who live within the walls of Gwanyin are trained in the Basic Arts of War. 
+
+The City supplies each person with a Spear, a Shield, a bow, and basic armor. Craftsmen and other wealthy individuals are expected to outfit themselves in more exceptional equipment. Professional Soldiers are selected from members of the Labor Class who show exceptional aptitude at War, and Officers are promoted form their ranks. Professional Soldiers are given equipment suited to their role, and spend their peace-time as a Guard-Force within the city.
+
+Everyone old enough to train is expected, and scheduled, to report to one of the City's Mustering Grounds once a week. These Courtyards are located next to the Temple of Life, and they are large enough for a force of men to practice moving in formation, combat in formation, and then split off for one-on-one sparring. The practice is overseen by a member of the Order of War, who is enjoying a day off from *their* training to spread their wisdom to lesser warriors.
+
+In the event of the City coming under attack, every man and woman within its walls is capable of joining the defense. Only Artisans, such as Blacksmiths and Architects, are expected to remain off the walls in such an event. Their *knowledge* and skill is seen as too valuable to risk in battle.
+
+#### The Essence Economy
+Just as the City is physically centered on the Well of Life, its Economy is similarly centered upon the Life Essence drawn from the Well.
+
+The Well is sheltered in the Temple of Life, a Fortress-Temple dedicated to Mair. It is a Sacred Place to the Men of Dernas, and the center of their City-State's Governance. It is a place of Healing, of Stockpiling Food against famine, and the last line of defense against those who seek to conquer The Well of Life. The Temple of Life is home to *two* Holy Orders. 
+
+> **The Orders of the Temple**
+>
+> The Order of Life is the Peaceful side of the Temple. The Order's most important duty is drawing Life Essence from the Well of Life. They administer the Essence to the Sick and Wounded of Dernas, and they throw the bodies of those about to die *into* the well to avoid the rise of Deathless. Their least public, but most *significant*, duty is as the City's Administrative Class. They maintain the city's genealogical records, sign off on work orders, and see to it that the city's craftsmen and laborers are supplied with raw materials.
+>
+> The Order of War is a brotherhood of Warriors, the finest in Amalah. There are rarely more than fifty members of the Order living within the Temple at any given time. They are given a cup of Life Essence to drink every morning. They then spend the majority of their day *training* for war. Their Training Routine is intense enough that it would kill any mortal man, and includes sparring with sharpened weapons and *barely* pulling strikes. The Order's daily dosage of Life Essence allows their bodies to push through the agonizing trials, and recover in time to do it again the next day. They are known for their *calmness* in battle, for their training has rid them of the fear of death and pain. They battle in silence, calmly and efficiently slaughtering their enemies.
+
+The Order of Life trades with the City-State's Farmers and Tribal Hunters, exchanging Life Essence for food. They also trade the Essence for other resources, such as raw metals and timber, necessary to fuel the city's construction, expansion, and maintenance. A vial of the Essence can be the difference between life and death for a hunter, for it can allow the body to recover from otherwise deadly wounds. It is even more valuable to a Farmer, who can sprinkle the Essence upon their fields and multiply their crop four-fold.
+
+The City's Residents, Specialists and Laborers alike, are cared for by the Temple. Their Food and Supplies are procured by the Temple, secured in Warehouses and allocated in accordance with the Priests' Holy Wisdom. The city is kept in a steady state of expansion. New Housing, Workshops, Warehouses, and *Walls* are constantly being constructed.
+
+The City's Purpose is to hold the Well of Life, and as such the City's Industry is focused upon fueling its war machine. Making advancements in Metallurgy and Craftsmanship win men a place in Song and *Legend* as surely as martial prowess, and Smiths and Bowyers are second only to Warriors in prestige. Architects and Engineers are the next most prestigious professions, for their minds give birth to new fortifications, massive weapons, and other defenses for the Well of Life. 
+
+#### Gwanyin Technology
+
+The following Technologies were developed by Gwanyin. Many were divinely inspired.
+
+Basic Metalworking - 3 Acts
+
+Shaped Stone - 3 Acts
+
+Shaped Weapons - 3 Acts
+
+Shaped Armor - 3 Acts
+
+Simple Alloy Refining - 4 Acts
+
+Urban Planning - 4 Acts
+
+Glass - 4 Acts
+
+Complex Architecture - 5 Acts
+
+[TOTAL: 29 Acts of Tech]
+
+[Herding the Masses = Gwanyin]
+
+[Local Goods to Trade:]
+
+> [Life Essence: Healing Potions and Super-Fertilizer with a 1 Year Shelf Life]
+>
+> [Glassworks: One of the Arts in Gwanyin is the creation of Glass Bottles. Many have elaborate decorative colors worked into them.]
+
+[Act Activity]
+
+[Current Acts: 24]
+
+[The Tech Bomb: -29 Acts]
+
+[Local Goods to Trade: +3 Acts]
+
+[Act Gain: +3 Acts]
+
+[End Turn: 1 Act]
+#### Subject Villages
+
+Gwanyin is not the only settlement in the Silroin Caldera. It has many smaller neighbors, a series of Farming Villages. The City holds sway over these Villages through its two great resources: Life Essence and Warriors.
+
+The City is dependent upon the Villages for food, and it protects them *fiercely*. Any invading force that seeks to raid a Caldera Village is inviting vengeance from Gwanyin. When word of an attack reaches the City, a force of well-trained and well-disciplined soldiers will inevitably be dispatched... generally with a party of five members of the Order of War attached to them.
+
+Likewise, the Villages are dependent upon Gwanyin for the Life Essence. Mixing Life-Essence into the water that irrigates their crops is the *foundation* of the Villagers' rampant success. They trade roughly a quarter of their crop at harvest time, and in exchange the Order of Life will supply them with Life Essence in the Spring. This ensures that their crops are bountiful, allowing them to trade freely with tribes wise enough to *trade* rather than *raid*. 
+
 ### Enkenea
 
 /u/WHOSGOTYOURSKINNOW 
@@ -545,6 +638,18 @@ A tribe of extremely religious Nkarlen centered around the capital Nkloig Sekzil
 Home to a large community of Gon's Goblin priests, known as the Ranos.
 
 Other settlements/cities include:
+
+### Herding the Masses - The Holy City of Thyval
+
+The Turmoiled of the Red Plains began constructing a citadel, situated near the border of the Wastes, where their ancestors witnessed the very curse that robbed them of their holy land. However, they were near enough that such a city could become their new holy land in its own right.
+
+And so, the Holy City of Thyval was born.
+
+Culture - Thyvians have a heavy cultural emphasis on piety, modesty, and respect towards one another. It is said that their ancestors' debaucherous behavior was the reason for the blight for their destined homeland. Common attire for men and women involve covering the entire body, with long sleeved tunics and robes that reach to their knees being a place holder outfit. Cleanliness is another focus of their culture, with one washing another as a sign of kindness.
+
+Religion - The Thyvians worship a god called the Angel of Purity, a being said to be an exemplar of modesty and respect. Their culture practices a religious philosophy called the Rebuke. This involves a daily denial of the Witch's influence on the city, acknowledging the curses that she rains over them, and a personal declaration of respect and blessings towards others. The priests, called "the Witch's Rejecters", devote themselves to shouting among the streets, denying the Witch every morning and every night. Over their faces sit a clean slate mask with their light blue robes.
+
+Government - Thyval is governed by a council called the "Fair Elders", who are voted upon by the residents of the city every 7 years. Within the central spire of the city sits the Erudite Vault, where the Elders meet to consult with each other on governing the city.
 
 ### The Magocracy
 
@@ -752,6 +857,10 @@ The Retaliator was sword of divine creation that Gon brought along with him from
 
 - Splitting Arrow: Splits into 3 in flight and hits target thrice.
 
+### Blood Empowerment
+By killing a creature, be it man or beast, one can then drink it's blood in a magical ritual to gain it's power.  
+While only a small amount of power is gained, it is permanent and can be repeated.
+
 ### Blood Storage
 
 Description: Magic used to store magics in blood. Stores magic for 1 year and 1 day.
@@ -764,6 +873,11 @@ Description: Magic used to store magics in blood. Stores magic for 1 year and 1 
 
 Magical Arrows who can absorb magical energies upon killing something, so it does not explode. Magical energy is stored in the arrow until discharged. This is a secret magic and does not become general knowledge. Can only be learned by bargaining with Rictus or buying it directly for 3 acts + 2 acts for secrecy.
 
+### The Mindburn spell
+
+As the Vazari experimented with their mental ability to dominate others, they found that, if magic was used to amplify their attempt at domination, it could not only dominate a person, but burn out any personal memories that the target possessed while leaving the majority of what made them useful, such as the knowledge of how to craft things or what type of foods where toxic, while leaving them unable to remember who even their closest friends or family.
+
+The Vazari turned to using this spell as a way to punish their more heinous criminals whose skills were valuable or rare, enough so that consigning them to unliving status outweighed the benefit of imposing more lethal punishments. In effect this spell could only be used legally after a fair trial was conducted by the judging of their peers and after the ritual was completed, the criminal was treated as a reborn person, given a new name and adopted or auctioned off into a family or other tribe that desired their skills so that the victims of the crimes would not have to deal with seeing the perpetrator day in and day out.
 ### Petrification Magic
 
 /u/WHOSGOTYOURSKINNOW
@@ -811,8 +925,6 @@ For example, a mortal looking to become tougher may show fidelity to a boulder. 
 Among mortals only the jumbled can make use of the powers this metaphysic bestows. It allows a jumbled to take body parts cut off of another person or corpse and sew them together. A living person can so be given use of a replacement limb if they lost their own.
 
 If a jumbled sews together a roughly humanoid form from corpse or body parts the resulting body comes alive as a jumbled themself. The jumbled live a relatively normal mortal life with a normal life span, the only caveat being they can only reproduce by knitting together a new jumbled. Biologically these new jumbled can however perform any other task a normal human, goblin or whater flesh was used in their creation, can. (Even sex.)
-
- - - - 
 
 ### Legends of the heroes
 
@@ -1197,6 +1309,9 @@ Description: A large scaled warm blooded creature with extremely tough jaws to s
 Created by Lyva, [Turn 3](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fm061ji/)     
 Description: A glowing metal that is quite easy to work, and constantly sheds warm golden light.
 
+### Malaphine
+
+A crystalline material most useful in weapons and armor, but also usable in construction. It is very balanced in strength and give.
 ## Regions
 
 ### The First Continent, Primus
@@ -1230,6 +1345,15 @@ The low canopy is home to the most life, much of it herbivourous and navigating 
 
 The top layers of the canopy are bright and the most fruitful, though also the most volatile and dangerous on slender branches. Fireflies provide light here almost permanently, keeping the screams from sounding, and many species of sensitive bats, birds, flying serpent and tiny monkey like creatures roam here.
 
+#### The Great Canyon
+
+Once a foreboding and lifeless scar on the world, The Great Canyon that divided the continent called Primus was now finally healing more then 8000 years after the wound had first been dealt. Moisture was rich here as it was funneled up from the southerly winds before getting trapped between the miles high ridges that made up the walls of the canyon, leading to a thick blanket of ever-present rain clouds covering the sky.
+
+Under these clouds soared a multitude of life, some animals aimlessly drifted in the wind while others soared with wings as long as a man stands tall and everything in between. The plantlife itself clung to the sides of the ridges, some of the largest plants growing upward several kilometers from the base of the canyon to the tallest ridges while the floor of the canyon had a river that ran through the middle towards the sea and was coated in many tall trees, each competing for the limited amount of sun that shines down on the ravine.
+
+Most animal life here flies in one method or another while most plants rely on alternate sources of energy then the sun to supplement their diet
+
+\[-4 acts for bioforming\]
 #### The Great Salt
 
 Creator: Lyva and Knave, ( u/smcadam and u/Makator)
@@ -1306,4 +1430,3 @@ Resources: lumber, scales, plant fiber, exotic/dangerous animals
 #### The Shattered Mountains
 
 Jagged and broken mountains full of twisting and sharp caves. Home to all kinds of bioluminescent creatures and plants and the hoarding crabs. See entry under landmarks for more info.
-
