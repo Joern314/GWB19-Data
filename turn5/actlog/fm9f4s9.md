@@ -1,7 +1,0 @@
-[-1 Act to Smite 10 Mortals](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm9f0m6/)     
-[-1 Act for the Cleansing Hammer Artefact](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm929n8/)     
-[+5 Acts: Tragedy of the Commons: The Life Reading Priests](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)    
-[+3 Acts: Local Goods for Trade: Iron and Kindlscal](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)    
-[Recovery: Herding the Masses: LyvKerel](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)      
-[-4 Acts for Coast Ships, -3 Acts for Prophet Erum, -5 Acts for Kiln Forge artefact, (7 Act Rebate=3 Acts) for Basic Metalworking Tech](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)     
-[+2 Acts for Here be Dragons Prompt](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fme84je/)
