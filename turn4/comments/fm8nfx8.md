@@ -1,0 +1,3 @@
+Lyva smiled and sauntered after her, "Well, they always, especially immortals, tend to makes things exciting. Breaking into vaults, showing me how valuable things are, showing off new tricks, and teaching me wonderful skills."    
+She leaned close and traced a lock of golden hair out of the way of the knaves face, looking over her full features for the first time as if entranced, while her tail snuck up from under her skirt, and gently coiled around her leg. "But this is the first time I've had a goddess in my hoard, and I don't think any woman has ever compared."    
+Then she bent in low for a gentle kiss, and whispered, "Now... can you get me out of this thing so I can breathe and shout?"

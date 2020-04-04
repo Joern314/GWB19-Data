@@ -2,7 +2,7 @@
 
 ## Celestial Bodies
 
-###The Arrow
+### The Arrow
 
 /u/Horatius-Cocles
 
@@ -14,7 +14,7 @@ The boy's friends were fed up with his bragging and demanded for him to show the
 
 The boy was not perturbed. He knew he could not possibly reach the sky with an arrow, but giving up without even trying seemed pathetic to him. And so he climbed a tall tree to improve his odds. He took aim and fired. And to the astonishment of the boy and his friends the arrow turned into a streak of silver and in the heavens stars appeared in the shape of an Arrow.
 
-###The Gates
+### The Gates
 
 /u/Gwydion-Drys
 
@@ -22,7 +22,7 @@ The boy was not perturbed. He knew he could not possibly reach the sky with an a
 
 To commemorate the founding of Epoidos the mages of the city performed an ancient ritual, given to them by the Sorcerer. And so there in the sky a constellation in the form of two gates appeared symbolizing the White Gates of Epoidos.
 
-###Segil'reld, The Great Bird
+### Segil'reld, The Great Bird
 
 /u/WHOSGOTYOURSKINNOW
 
@@ -30,49 +30,17 @@ To commemorate the founding of Epoidos the mages of the city performed an ancien
 
 Seven bright stars, all with a green and purple hue marked the beak, wing tips, two legs, the end of the tail feathers, and one at the heart of the being, were filled in with duller stars to complete the image. All glistened like bright jewels in the heavens and the beak of the great bird was anchored above the Temple-Caves of Nkan'gbamo. It would be said that the bird always flew home.
 
+###The Wall
+
+/u/Senelaria
+
+[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm7dn4x/)
+
+To remind mortals of the day a horde of the Unliving had broken forth from below and a furious goddess was born, Glypha put a constellation in the sky in the form of a wall, so the mortals would know that even walls couldn't save them, if they roused her ire. 
+
 ## Landmarks
 
-### Nkan'gbamo
-
-/u/WHOSGOTYOURSKINNOW
-
-[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
-
-Temple-caves with large square passages, rooms, and stairs underneath The Shattered Mountains. The walls and ceiling are littered with the jewels from when Gon formed the mountain range and glitter with any source of light. At the deepest point, the largest chamber serves as an audience hall with a single stone throne where Gon met with all the various minor gods he had pulled into his service. A smaller room off of this chamber served as his inner sanctum and living quarters.
-
-### The Sea Spike
-
-/u/Horatius-Cocles 
-
-[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flum9pd/)
-
-In good view of both continents the single highest mountain of the world made purely of obsidian rises high above the ocean surface into the clouds. It is called the Sea Spike.
-
-### The Shattered Mountains (Segbiggolod Linenko)
-
-/u/WHOSGOTYOURSKINNOW
-
-[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
-
-Dropped on the second continent by Gon during its creation, The mountain range is full of jagged cracks and crevices that form caves. The nature of their formation left the tops of the mountains broken into sharp points. During their formation, Gon placed large numbers of jewels under and there remain great riches to be found.
-
-### Skaal'gbaldol, the Sky Holder
-
-/u/Rhaegar1994
-
-[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
-
-A sixteen mile high mountain in the form of a Nkarlen down on one knee with his hands up like he is holding up the sky. The source of many legends; he is rumoured to have been the first goblin hero.
-
-### Nkloig Sekzil, The Mouth of Creation
-
-/u/WHOSGOTYOURSKINNOW
-
-[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu8tjs/)
-
-A deep crevice where the goblins are said to have crawled out from. Home to a large number of Ranos priests and serves as Gon's holy land (influence is measured by the percent of the population that lives underground.)
-
-###The Empty Temple
+### The Empty Temple
 
 /u/horatius-cocles, /u/Gwydion-Drys
 
@@ -97,6 +65,46 @@ Inside the main room two pits serve as sacrifice pits to burn offerings to the g
 As it is meant to serve as a home to the gods many furs, seats and primitive tables can be found within the side rooms as well as sleeping and fire places. There are no walls per se, but with wooden struts and sticks connected to the megaliths a framework for walls is formed. The "walls" themselves consist of furs, dried foliage and wicker.
 
 The "walls" are painted in primitive colors, mostly depicting mythological scenarios, like the creation of humans and Apokryph, the laying of Azrakal, Rak being dragged to death by the Sorcerer or the first Iron Judge sentencing Ras, the blood emperor.
+
+### Nkan'gbamo
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
+
+Temple-caves with large square passages, rooms, and stairs underneath The Shattered Mountains. The walls and ceiling are littered with the jewels from when Gon formed the mountain range and glitter with any source of light. At the deepest point, the largest chamber serves as an audience hall with a single stone throne where Gon met with all the various minor gods he had pulled into his service. A smaller room off of this chamber served as his inner sanctum and living quarters.
+
+### Nkloig Sekzil, The Mouth of Creation
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu8tjs/)
+
+A deep crevice where the goblins are said to have crawled out from. Home to a large number of Ranos priests and serves as Gon's holy land (influence is measured by the percent of the population that lives underground.)
+
+### The Sea Spike
+
+/u/Horatius-Cocles 
+
+[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flum9pd/)
+
+In good view of both continents the single highest mountain of the world made purely of obsidian rises high above the ocean surface into the clouds. It is called the Sea Spike.
+
+### The Shattered Mountains (Segbiggolod Linenko)
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
+
+Dropped on the second continent by Gon during its creation, The mountain range is full of jagged cracks and crevices that form caves. The nature of their formation left the tops of the mountains broken into sharp points. During their formation, Gon placed large numbers of jewels under and there remain great riches to be found.
+
+### Skaal'gbaldol, the Sky Holder
+
+/u/Rhaegar1994
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/floapi9/)
+
+A sixteen mile high mountain in the form of a Nkarlen down on one knee with his hands up like he is holding up the sky. The source of many legends; he is rumoured to have been the first goblin hero.
 
 ## Lifeforms
 
@@ -131,7 +139,6 @@ A small symbiotic fungus living by eating magic. It lives in predators and eats 
 If an individual mortal is able to fend off this wolf-like creature it takes gooey form and tries to bond itself to the person. The bonding process acts like sickness and kills the host through ensuing fever and auto-immune reactions. In 1 out of 10 cases however, the Nightwalker forms a symbiotic relationship with the host.
 
 The bond with the Nightwalker endows it's with a sense of echolocation, though interpreting the new sensory input takes time and experience. The immune system of the host is also strengthened somewhat after fighting off the infection like the bonding process and their blood turns slightly acidic.
-
 
 ### Rift Tree
 
@@ -228,16 +235,46 @@ Creator: Lyva, ( u/smcadam )
 
 A volcanic archipelago of Islands off the northern coast of Primus, created by Lyva triggering a massive eruption after a sleep. It has a vibrant and quite peaceful ecosystem with few predators built on the volcanic ash of the islands eruption. Trees growing here were tough and hardy, grass was thick, and she added peaceful creatures like kiwis, oxen, horses, goats, apes and many species of birds and snakes across the hills. In the shallow waters, large amphibious geckos as big as horses roamed, and many bright tropical insects.
 
-### The Second Continent (Name pending)
+### The Second Continent, Reloik'lakzek (Name Pending)
+
+Creators: Gon ( /u/WHOSGOTYOURSKINNOW ), Sunda (/u/StarOfTheSouth ), and Prismari ( /u/Rhaegar1994 )
 
 [Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm48zh/)
 
 A large continent with formed by the gods Gon Gryn, Prismari, and Sunda far across the sea from the first continent. It contains an inland sea and white sand beaches on the western side with rocky coasts on the west. A mountain range runs along the eastern side, from when it was dropped there by the earth god. These mountains are rich in jewels. It has not received a proper name, but Gon calls it "Reloik'lakzek" which means "The Land of Broken Stones."
 
-Currently home to the Savage Jungle, Green Grass, and the Shattered Mountains
+Currently home to the Savage Jungle, Gbigolind (Ireland/Grasslands), Amalah, Nkirbaal, and the Shattered Mountains.
+
+#### Amalah
+
+A land of immense mountains, deep valleys, expansive caverns, immense lakes, and raging rivers. Many of the Mountains are volcanoes, and earthquakes are yearly events throughout the region. Created by the impact of a comet.
+
+#### Nkirbaal
+
+An inland sea formed during the creation of the second continent.
+
+#### Gbigolind (Ireland/Grasslands)
+
+Green grasslands and rolling hills not unlike Ireland. Populated with the usual assortment of wildlife plus Beardillos.
+
+#### The Shattered Mountains
+
+Jagged and broken mountains full of twisting and sharp caves. Home to all kinds of bioluminescent creatures and plants and the hoarding crabs. See entry under landmarks for more info.
 
 #### The Savage Jungle
 
 Description: A jungle filled with danger, large reptilian like creatures.  
 Food: Meat, Fruit, Crop  
 Resources: lumber, scales, plant fiber, exotic/dangerous animals
+
+####Jumbled Mountains
+
+/u/Senelaria
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlgpm/endless_pantheon_turn_5_macro_act_log/fmahxwh/)
+
+A curious chain of mountains hewns from very different kinds of rock giving it a very mixed appearance color wise. Different peaks are made from different colors.
+
+The mountains are filled with caves. There are many streams running down the mountain and many pastures for the very common goats the inhabitants herd.
+
+The foot is packed with dense forests and its typical flora and fauna.

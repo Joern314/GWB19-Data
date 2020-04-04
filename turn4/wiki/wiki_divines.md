@@ -161,11 +161,27 @@ He is normally clothed in splendours travelling clothes and wears a hooded cloak
 
 **Further Explanation:** Not really sure what needs to be elaborated on, as I'm mostly just planning on doing character stuff this game. No big plans from me.
 
+###Glypha
+
+/u/Senelaria
+
+**Spheres**: Fear and Flesh
+
+**Appearance**: At first glance she looks like a beautiful young woman, but the less you pay attention to her, the more you can perceive the rotting corpse underneath the exterior shell.
+
+In her more human-looking stage of appearance, she seems to have white skin, blue eyes and black hair, while wearing a pretty, white dress.
+
+But the more unfocused someone's look becomes on her the more the pale and blotchy skin of a corpse, the stitches keeping her rotting body parts together and the matted and filthy strands of hair shine through. As well as talons on her fingers and sharp and very hungry teeth.
+
+**Plans and Style**: Make mortal suffer for leaving their unliving relatives to rot and die in filth.
+
+**Origin**: Many of the mortals could not bear to kill the Unliving their loved ones on the verge of death eventually become. And so they relinquish the nearly dead in the wilds to turn into the unliving and eventually be killed by someone else. One such place is a ravine the people of this world tend to toss their dead relatives into, therefrom the unliving born of their corpses can not return to do harm.
+
+Invariably either forced to eat each other, feed on themselves or starve a lot of magic is collected in one place, whenever more than a few of the Unliving are tossed into the ravine. From this collective suffering and magical inferno rose Glypha.
+
+**Further explanation**: Stitching together corpse flesh to make monsters. Terrify mortals for vengeance.
+
 ## Minor Gods
-
-### Sarash
-
-Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
 
 ### Dogu
 
@@ -187,6 +203,17 @@ Description: Minor goddess who oversees pain among mortals. Obsessed with Azraka
 
 **Appearance**: A rotten amber gargoyle who sees to it that oxidization, rust and corrosion work properly.
 
+### Genaal'lakzek
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu4g3h/)
+
+**Sphere**: Sand
+
+**Description**:
+A cloud of sand that is in charge of all of the beaches and deserts. Attempts to act like a very stiff soldier, as if trying to make up for the fact he is just sand.
+
 ### Igali
 
 **Creator**: Lyva ( /u/smcadam )
@@ -199,7 +226,7 @@ Description: Minor goddess who oversees pain among mortals. Obsessed with Azraka
 
 ### Kzivo
 
-**Player**: /u/WHOSGOTYOURSKINNOW
+/u/WHOSGOTYOURSKINNOW
 
 **Created**: [Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnbeso/)
 
@@ -220,15 +247,54 @@ His exact origins are unknown; Gon Gryn awoke one day to find him simply working
 
 **Appearance**: A half serpentine naga woman with abacus beads as her scales. Leyanna was created from within Lyva's essence to serve as her assistant, and keeps track of all of Lyva's hoard and treasures.
 
+### Livi
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu4g3h/)
+
+**Sphere**: Lava
+
+**Description**:
+A stunning young woman made of lava that cools to form an obsidian outer skin for her, she is marked by cracks of lava and oversees its natural flow beneath the surface. She is a bit air-headed from the number of gods that had been thrown into the planet forming volcanoes and it is said that any volcanic eruption is a result of her messing up her job.
+
+In reality,it is also her responsibility to manage the lava flows on the surface of the planet.
+
+### The Lizard
+
+A yellow-black lizard who *might* be very powerful and dangerous. Speaks like some kind of narrator. Was killed and eaten by Lyva.
+
+### Mseligegbi
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu4g3h/)
+
+**Sphere**: Hatred
+
+**Description**:
+An offshoot of the vengeance sphere, Mseligebi manages all of the hatred in the world, encouraging hatred to grow. Appears as a twisted and scarred demon with a handsome face.
+
+### Nkom
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu4g3h/)
+
+**Sphere**: Gems
+
+**Description**:
+A lion made out of emerald with a diamond mane, fangs, and claws. Has eyes of garnet and exudes a soft glow. A lazy creature while underground, petting him polishes the gems he is made out of. An expert creator of gems and tailor; able to craft them into clothes to fit anyone with Gon's permission.
+
 ### Olasea
 
-**Player**: /u/WHOSGOTYOURSKINNOW
+/u/WHOSGOTYOURSKINNOW
 
-**Created**: [Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flpo5p4/)
 
 **Sphere**: Erosion
 
-**Description**: 
+**Description**:
 Olasea appears as a very energetic young girl made of perfectly smooth granite wearing what looks like rages but are actually extremely smooth pieces of slate.
 
 She can most often be found on mountain tops, sanding away rough edges, breaking apart stones with a hammer, and causing rock slides. After trying to break Gon Gryn in their first encounter she began considering him the "big boss" who provides her with all of her work. Apparently she is the sister of Kzivo, Minor God of Caves.
@@ -274,8 +340,6 @@ Creator: kain ?
 
 **Description**:  Reva has long flowing blue hair. She wears a grey and blue dress and she seemed to be carry  some sort of large wineskin which help create rain 
 
-- - -
-
 ### Rhelii the Reaper/"Miss Fortune"
 
 **Creator**: Oryllia ( /u/DragoneyeCreations )
@@ -288,6 +352,23 @@ Creator: kain ?
 
 **Origins**: Once a blighted mortal who wandered the earth in fruitless pursuits, Rhelii now serves within the Hexforge, tending to the Witch Gardens, where the resources for Oryllia's dark concoctions are made. She is responsible for sewing the misfortunes of mortals within the flora of the garden.
 
+### Rili
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu4g3h/)
+
+**Sphere**: Balance
+
+**Description**:
+An offshoot of the Vengeance sphere, Rili is in charge of bringing balance to the world, something that seems to be an impossible task. She fell under Gon's influence thanks to the close relationship that their spheres have. It is said that she is the one who holds the scales level whenever things are weighed. Opposes Gon overreacting or dealing out unequal vengeance.
+
+She appears as a white feathered gryn dressed in white and wearing a black blindfold. She carries a set of scales at all times. Often stands perfectly straight on one leg and always walks like she is on a balance beam; one foot directly in front of the other. Similar to a very cautious bird.
+
+### Sarash
+
+Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
+
 ### The Sisters of Worship, Yinquel, Chantra and Vesper
 
 **Creator**: Lyva ( /u/smcadam )
@@ -298,6 +379,30 @@ Creator: kain ?
 
 **Appearance**: The three sisters were created to help Lyva collect her worship and hear her followers better. Vesper, of Prayer, is mouthless but has many ears across her body. Chantra of Praise has three faces and many mouths to sing with. Yinquel, of Worship, is action oriented and has six arms to work with.
 
+### Sralenkevo
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu4g3h/)
+
+**Sphere**: Mercy
+
+**Description**:
+A tag along that stays with Gon and acts like the angel on his right shoulder. She appears as the thing that the onlooker would have the hardest time hurting or as a gentle angel if that doesn't work and she wishes to reveal herself.
+
+Reminds Gon of his "mother", Vera, who was the only part of his family that fully accepted him, despite their differences in spheres. Often gets into arguements with the Minor God of Hatred.
+
+### Sriuleg
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flu4g3h/)
+
+**Sphere**: (Geological) Faults
+
+**Description**:
+An enormous golem with few features other than a split straight down the middle. Says little and moves little. In charge of the shifting of the earth. Earthquakes that occur naturally are said to be Sriuleg walking about.
+
 ### Tondra
 
 Creator: kain ? 
@@ -306,13 +411,7 @@ Creator: kain ?
 
 **sphere**: thunder 
 
-**Description**: tondra is a minor divine Who wears storm grey attire that resembled a dress along with short curly yellow hair. who  carriers around a large drum which she beats to make thunder 
-
-### The Lizard
-
-A yellow-black lizard who *might* be very powerful and dangerous. Speaks like some kind of narrator. Was killed and eaten by Lyva.
-
-- - -
+**Description**: tondra is a minor divine Who wears storm grey attire that resembled a dress along with short curly yellow hair. who  carriers around a large drum which she beats to make thunder
 
 ## Servitors
 

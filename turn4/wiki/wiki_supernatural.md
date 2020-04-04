@@ -19,7 +19,7 @@
 **Description**: 
 A feather shaped blade that has turned to pitch black obsidian after being used in a ritual to ascend to godhood. A fuller ran the length of the blade and formed what would have been the stem of the feather. The shining brass or gold guard was formed in the shape of wings, the handle wrapped in a what had become rough blackened leather in a criss-cross fasion, and the pommel was in the shape of a bird's head with three eyes. Each eye was a different gemstone; emerald, ruby, and diamond.
 
-The Retaliator was sword of divine creation that Gon brought along with him from another world. Having lost its old patron and having being used as a catalyst to create Gon's spark of divinity, it was been rendered powerless and immaterial.
+The Retaliator was sword of divine creation that Gon brought along with him from another world. Having lost its old patron and having being used as a catalyst to create Gon's spark of divinity, it had been rendered powerless and immaterial.
 
 **Blessings**: 0 (The blade exists as a part of Gon's divine form only, for now.)
 
@@ -39,13 +39,43 @@ Description: Magic used to store magics in blood. Stores magic for 1 year and 1 
 
 Magical Arrows who can absorb magical energies upon killing something, so it does not explode. Magical energy is stored in the arrow until discharged. This is a secret magic and does not become general knowledge. Can only be learned by bargaining with Rictus or buying it directly for 3 acts + 2 acts for secrecy.
 
+###Arrow Spells
+
+/u/Horatius-Cocles 
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmbyy5j/)
+
+- Armor Piercer: An arrow with increased piercing power versus armor or big beasts.
+
+- Delayed Arrow: Freezes in the air when shot and only takes flight after a delay, allowing the archer to hide or change positions.
+
+- Splitting Arrow: Splits into 3 in flight and hits target thrice.
+
+###Petrification Magic
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmb4yly/)
+
+This required the caster to take in the magic from an unliving creature who had been put down and redirect that energy to their target.
+
+Petrification magic was not instant and could only be used from a short distance, but the living/unliving would slowly turn to stone from the point that the magic was directed to, until they had been rendered into nothing more than a statue. This spell does not permit this to be undone. To prevent becoming a statue, one must rid themselves of all of the parts that have started to turn to stone.
+
+###The Sorcerer's Runes
+
+/u/Gwydion-Drys 
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm8mb06/)
+
+Runic markings taught to mortals by the Sorcerer. If fed with magical energy by killing something of by a store the runes can be charged and used to their magical purposes until depleted. At which point they need to be recharged again.
+
+- Rune Pyxos: Putting it on an object makes it more durable for a while. While a living thing can carry heavier loads.
+
+- Rune Akribeia: Putting it on an object this enchantment makes a tool or weapon exert more force when used. While it heightens someones precision with a tool or weapon if put on a living thing. 
+
+- Rune Fora: Putting it on a living thing this spell boosts its stamina. For missiles and vehicles it boosts their speed.
+
 ## Metaphysics
-
-### Power of Blood
-
-Description: Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
-Power is just not strength, but also a general meaning of power. Kings blood makes for good king in several aspect.  
-Blood can also be applied to people and objects to increase their power temporarily.
 
 ### Fidelity
 
@@ -85,17 +115,25 @@ Unclaimed souls and those claimed by the Sorcerer are after death escorted to th
 
 The Unliving yearn to sate all their animal desires including food, sleep and sex at all costs. They are however biologically mortal and produce mortal children.
 
+### Power of Blood
+
+Description: Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
+Power is just not strength, but also a general meaning of power. Kings blood makes for good king in several aspect.  
+Blood can also be applied to people and objects to increase their power temporarily.
+
 ### The Thirteen Hexes
 
 **Creator**: Oryllia(/u/DragoneyeCreations)
 
 **Created**: [Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flhf0w8?utm_source=share&utm_medium=web2x)
 
-**Description**: A set of thirteen distinct blights upon the world, forged by the primordial dregs of creation.
+**Description**: ~~A set of thirteen distinct blights upon the world, forged by the primordial dregs of creation.~~
 
-#### Hex 1 - The Soil Shrieks
+The Hexes were undone by Oryllia, after an immense crisis of guilt and an encounter with Lyva.
 
-Every time a region of the world is covered in darkness, the air is filled with bloodcurdling screams.
+#### ~~Hex 1 - The Soil Shrieks~~
+
+~~Every time a region of the world is covered in darkness, the air is filled with bloodcurdling screams.~~
 
 ### Tsukumogami, or Familial Bonding
 
@@ -113,6 +151,64 @@ Years Owned | Power
 100+| Full control of self like any person would have control over their body, Sentient personality based off of experience and owner(s), able to communicate with those around it, Blindsight 20 ft, Can be passed on to family or friends without any regression of power. Item never losses its sentience or ability unless destroyed
 
 Of note, hero artifacts are spawned from a soul and as such aren't fully inanimate objects to be affected by this metaphysics, but things like artifacts can be
+
+###Theurgy - Cantrips 
+
+/u/Gwydion-Drys 
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm8mb06/)
+
+These spells can be cast by anyone. Up to three times per day any combination of these cantrips can be used. They are influenced by the gods and their domains and allows mortals to channel magical power in an imitation of divine power for the following purposes:
+
+God | Cantrip
+:--|:--|
+|**Azrakal** (Blood &amp; Power)|Consume blood for short boost of endurance.|
+|**Dawri** (Fate &amp; Time)|Divination on planned events can give a feeling about it going right or wrong.|
+|**The Forgotten** (Lost Things &amp; Sentiments)|Mend items with sentimental value.|
+|**Glypha** (Fear &amp; Flesh)|Evoke fear by illusion of rotten flesh.|
+|**Gon Gryn** (Earth &amp; Vengeance)|Create small pit trap.|
+|**Kain Marson &amp; Prismari** (Storm &amp; Heroes)|Fortify yourself against bad weather.|
+|**Lyva** (Metal &amp; Greed)|Detect precious metals in vicinity.|
+|**Mair** (Life &amp; War)|Mend minor cuts and bruises.|
+|**Malaphet** (Stars &amp; Minds)|Navigate via stars.|
+|**Oryllia** (Hexes &amp; Contracts)|Make a curse mark appear on someone who broke a contract.|
+|**Rictus** (Law &amp; Hunt)|Detect stolen goods of yours.|
+|**The Salty Knave** (Sea &amp; Theft)|Evoke sounds, smells or feelings of the ocean.|
+|**Sarah** (Darkness &amp; Protection)|Shroud yourself in darkness if threatened.|
+|**Shilo** (Agriculture &amp; Competition)|Discern best way to grow crops better than rival of choice.|
+|**The Sorcerer** (Magic &amp; Death)|Delay the decay of free magical energies into light and heat.|
+|**Sunda** (Animals &amp; Wilds)|Screen surroundings for animal tracks or food sources.|
+|**Thool** (Seasons &amp; Trees)|Disappear/ hide between trees.|
+|**Yashqal** (Dance &amp; Mimicry)|Mimic someone's voice or a sound.|
+
+(As magical power is channeled there still needs to be killed something before use of a cantrip or the caster needs a store of magical power of some kind.
+
+###Knitting Flesh
+
+/u/Senelaria
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlgpm/endless_pantheon_turn_5_macro_act_log/fmahxwh/)
+
+Among mortals only the jumbled can make use of the powers this metaphysic bestows. It allows a jumbled to take body parts cut off of another person or corpse and sew them together. A living person can so be given use of a replacement limb if they lost their own.
+
+If a jumbled sews together a roughly humanoid form from corpse or body parts the resulting body comes alive as a jumbled themself. The jumbled live a relatively normal mortal life with a normal life span, the only caveat being they can only reproduce by knitting together a new jumbled. Biologically these new jumbled can however perform any other task a normal human, goblin or whater flesh was used in their creation, can. (Even sex.)
+
+ - - - 
+
+###Legends of the heroes 
+
+**Creator**: Kain  & prismari 
+
+**created**: [turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flgnymn/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+
+**The Law**: Mortals who embrace their Legend shall grow stronger as it grows, but Legends never die.
+
+**Explanation**: When a Non-Incarnate Mortal has the desire to change the world, they open themselves up to the Legends of the heroes . Specifically, they open up the possibility to build their Personal heroic Legend. This turns them into a Heroic Mortal. Heroic Mortals do not need to be "Good" or "Evil," they only need the desire to make a change in the world.
+
+Heroic Mortals grow their Legend by growing their reputation (or fame) in the eyes of other mortals. However, Legend will only grow if you actually did what people think you did. You can't just claim credit for what other people do. Your Legend will not grow if you are anonymous either, people need a name to attach to your deeds in order for you to gain Legend. That name can be a pseudonym, though.
+Heroic Mortals are able to draw upon their Legend to fuel greater deeds. Those with powerful Legends will be able to achieve superhuman feats, although they will never get strong enough to solo a Demigod. This can become a self-reinforcing feedback loop of Greater Powers leading to Greater Deeds leading to Greater Powers.
+There is a cost to Heroism. Heroes Never traditionally Die, but are instead consumed by their Legend. Sure there body may pass with a magical explosion which depending on the size of the legend may be larger and become a unliving but yet A small portion of Their souls will never pass on to an Afterlife, but will instead linger as a portion of their Legend, In the form of an artifact that can gift future heroes with a bit of past heroes abilities. These artifacts cost players at the least 2 acts 
+
 
 ## Miracles
 
@@ -158,6 +254,24 @@ Lawbringers are endowed with the power to actively bend reality to bring order i
 These powers can be revoked by an Iron Inquisitor or withdrawn by the miracle itself, if grossly misused.
 
 The strain put on Lawbringers is the same or even greater as that put on Judges, when they bend reality.
+
+###Waidmänner
+
+/u/Horatius-Cocles 
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmbyy5j/)
+
+Warriors serving as the armed wing of Order of Iron Judges to enforce the law and as agents to the demigod Ferus, the Waidmänner receive their power by being chosen to serve by the Iron Judges or Ferus. The Waidmänner are gifted the abilities to be deadly hunters and warriors to boot.
+
+- Hunting Intuition: The Waidmann possesses extraordinary instincts, allowing them supernatural tracking abilities and more accurate senses. Their senses are in fact so sharp: If they can see, hear, smell or in any other way perceive their target, they can deduce knowledge about their target like is the target human, what age, injuries and weakness to exploit, is the target hostile or a danger.
+
+- Stealth Tactics: The Waidmann is very knowledgeable in stealth and hunting tactics and master them to perfection. Beyond that someone guilty of breaking the Iron Law has a harder time detecting the Waidmann, to aid in the offenders apprehension or to more easily serve justice. 
+
+- Weaponsmastery: The Waidmann is a master in the use of their hunting implements. It doesn't matter if bow, cannon, spear or knife. The Waidmann knows instinctively how to use whatever tool is at hand to capture or incapacitate his chosen prey.
+
+- Trophies: Any Waidmann can perform this hunting ritual. In which he has to slay prey shown to him in a vision. The Hunt has to be undertaken without resources or any form of supernatural or divine powers and only things or powers acquired during the quest can be used for the hunt. If the quest is completed successfully the Waidmann gains some of the power of his prey. This effect is accumulative.
+
+ So an experienced Waidmann, who has gone though the ritual several times, will have a number of powers like night vision, or the enhanced senses and strength of an animal, or things as straightforward as retractable claws. Any new cycle however will be more difficult than the last.
 
 ## Planes
 
