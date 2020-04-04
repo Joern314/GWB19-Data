@@ -36,6 +36,8 @@ Complex Architecture - 5 Acts
 
 [Local Goods to Trade: +3 Acts]
 
+[Tragedy of the Commons:+5 Acts]
+
 [Act Gain: +3 Acts]
 
-[End Turn: 1 Act]
+[End Turn: 6 Acts]
