@@ -1,2 +1,0 @@
-# Gods [Divines]
-

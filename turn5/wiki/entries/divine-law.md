@@ -1,2 +1,0 @@
-# Divine Law [The Supernatural]
-

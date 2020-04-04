@@ -1,2 +1,0 @@
-# Persons [Politics]
-

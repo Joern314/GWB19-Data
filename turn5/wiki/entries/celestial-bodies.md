@@ -1,2 +1,0 @@
-# Celestial Bodies [The World]
-
