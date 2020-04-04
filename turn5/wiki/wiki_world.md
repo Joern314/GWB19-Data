@@ -38,6 +38,14 @@ Seven bright stars, all with a green and purple hue marked the beak, wing tips, 
 
 To remind mortals of the day a horde of the Unliving had broken forth from below and a furious goddess was born, Glypha put a constellation in the sky in the form of a wall, so the mortals would know that even walls couldn't save them, if they roused her ire. 
 
+###The Red Star  
+
+/u/plintstorm
+
+[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm45syc/)
+
+A bright red start to the south.
+
 ## Landmarks
 
 ### The Empty Temple
@@ -109,6 +117,10 @@ A sixteen mile high mountain in the form of a Nkarlen down on one knee with his 
 ## Lifeforms
 
 ### Blood Hunter
+
+/u/plintstorm
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flx87zi/)
 
 Description: Highly dangerous, intelligent, cruel, strong and bloodthirsty creature. Lives in the Savage Jungle.
 
@@ -182,6 +194,10 @@ A crystalline material most useful in weapons and armor, but also usable in cons
 Created at the dawn of time by Rictus, Azrakal, Prismari and Kain. It holds the Hunting Grounds of Rictus, the Blood Planes of Azrakal and an statue of a colossal man by Prismari and many other places.
 
 #### Blood Plains
+
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnix1j/)
 
 Description: [Explained here](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fluhzvi/), a plain that is colored red.  
 Plenty of deer to hunt and some wild horses. A drug grows there.  
@@ -281,6 +297,10 @@ The foot is packed with dense forests and its typical flora and fauna.
 An inland sea formed during the creation of the second continent.
 
 #### The Savage Jungle
+
+/u/Plintstorm 
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flx87zi/)
 
 Description: A jungle filled with danger, large reptilian like creatures.  
 Food: Meat, Fruit, Crop  

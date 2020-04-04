@@ -10,6 +10,15 @@
 
 **Description**: A dagger forged with the scales of Lyva and the Blood of Azrakal. The Dagger absorbs blood, including that inside the people it stab.
 
+###Blade of the First King
+
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fltg5sc/)
+
+**Description:** Blade of the first King of the world. Can only be held by people with Kings blood or close to getting Kings blood.  
+A unusually powerful sword.
+
 ### The Retaliator
 
 **Creator**: ??? ( /u/WHOSGOTYOURSKINNOW ) 
@@ -39,13 +48,23 @@ The Retaliator was sword of divine creation that Gon brought along with him from
 
 - Splitting Arrow: Splits into 3 in flight and hits target thrice.
 
-### Blood Empowerment
-By killing a creature, be it man or beast, one can then drink it's blood in a magical ritual to gain it's power.  
-While only a small amount of power is gained, it is permanent and can be repeated.
 
-### Blood Storage
+###Blood Storage
 
-Description: Magic used to store magics in blood. Stores magic for 1 year and 1 day.
+/u/Plintstorm 
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flxvou2/)
+
+**Description:** Magic used to store magics in blood. Stores magic for 1 year and 1 day.
+
+###Blood Empowerment
+
+/u/Plintstorm 
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm7wgzs/)
+
+**Description:** By killing a creature, be it man or beast, one can then drink it's blood in a magical ritual to gain it's power.  
+While only a small amount of it's total power is gained, it is permanent and can be repeated.
 
 ### Magic Arrows
 
@@ -151,7 +170,11 @@ The Unliving yearn to sate all their animal desires including food, sleep and se
 
 ### Power of Blood
 
-Description: Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnix1j/)
+
+**Description:** Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
 Power is just not strength, but also a general meaning of power. Kings blood makes for good king in several aspect.  
 Blood can also be applied to people and objects to increase their power temporarily.
 
