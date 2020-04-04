@@ -1,0 +1,2 @@
+# None [None]
+[Pls look over https://old.reddit.com/r/GodhoodWB/comments/ftm7t5/theurgy_cantrip_pls_read/ , the God of Magic wants to make a spell for every god, and asks for your opinion ]
