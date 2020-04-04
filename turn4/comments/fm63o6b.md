@@ -1,0 +1,3 @@
+"Hmmmmm," Lyva hummed, suddenly finding herself voiceless as the mercury form half melted. Then she inhaled, reforming her nose eyes and lips, tested them with a kiss on Prismari's forehead, and set herself to steel skin.    
+
+"I think... this weird old weak homeless leech god might be your father. Or he's trying to pull something over on us. Or he's adopted you." She gritted her teeth, and sat cross legged, tail twitching anxiously, "Or he's insane- ARGH, I can't believe I miss Truespeak! Fine, I've broken the ice, now tell us why we should believe you're his father and not some freak?"

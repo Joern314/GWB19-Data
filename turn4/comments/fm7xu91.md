@@ -1,0 +1,2 @@
+"Like a little princess sain- ah!" Lyva's teasing was interrupted by being pulled close, her tail curling around Nadeline's hips, her hands guarding her new hairpiece.    
+"Well we're in my head I'm afraid, so you'll have to show me what you're thinking." She whispered, forked tongue flicking up to tap the mask.
