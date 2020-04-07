@@ -1,6 +1,6 @@
 [
   {
-    "acts": 27,
+    "acts": 6,
     "draw": -2,
     "gain": 8,
     "name": "Azrakal",
@@ -11,9 +11,9 @@
     ]
   },
   {
-    "acts": 30,
+    "acts": 18,
     "draw": -2,
-    "gain": 4,
+    "gain": 7,
     "name": "Dawri",
     "player": "/u/gorok1089",
     "spheres": [
@@ -22,7 +22,7 @@
     ]
   },
   {
-    "acts": 24,
+    "acts": 26,
     "draw": -2,
     "gain": 4,
     "name": "The Forgotten",
@@ -33,7 +33,7 @@
     ]
   },
   {
-    "acts": 9,
+    "acts": 16,
     "draw": -2,
     "gain": 6,
     "name": "Glypha",
@@ -44,7 +44,7 @@
     ]
   },
   {
-    "acts": 13,
+    "acts": 9,
     "draw": -2,
     "gain": 8,
     "name": "Gon Gryn",
@@ -55,7 +55,7 @@
     ]
   },
   {
-    "acts": 15,
+    "acts": 20,
     "draw": -2,
     "gain": 6,
     "name": "Kain Marson & Prismari",
@@ -66,9 +66,9 @@
     ]
   },
   {
-    "acts": 24,
+    "acts": 11,
     "draw": -2,
-    "gain": 8,
+    "gain": 9,
     "name": "Lyva",
     "player": "/u/smcadam",
     "spheres": [
@@ -77,7 +77,7 @@
     ]
   },
   {
-    "acts": 27,
+    "acts": 12,
     "draw": -2,
     "gain": 5,
     "name": "Mair",
@@ -88,7 +88,7 @@
     ]
   },
   {
-    "acts": 29,
+    "acts": 30,
     "draw": -2,
     "gain": 8,
     "name": "Malaphet",
@@ -99,7 +99,7 @@
     ]
   },
   {
-    "acts": 6,
+    "acts": 11,
     "draw": -2,
     "gain": 7,
     "name": "Oryllia",
@@ -110,8 +110,8 @@
     ]
   },
   {
-    "acts": 10,
-    "draw": -3,
+    "acts": 4,
+    "draw": -4,
     "gain": 8,
     "name": "Rictus",
     "player": "/u/Horatius-Cocles",
@@ -154,9 +154,9 @@
     ]
   },
   {
-    "acts": 11,
-    "draw": -2,
-    "gain": 8,
+    "acts": 5,
+    "draw": -3,
+    "gain": 9,
     "name": "The Sorcerer",
     "player": "/u/Gwydion-Drys",
     "spheres": [
@@ -176,7 +176,7 @@
     ]
   },
   {
-    "acts": 16,
+    "acts": 20,
     "draw": -2,
     "gain": 6,
     "name": "Thool",
