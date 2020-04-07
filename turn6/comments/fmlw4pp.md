@@ -1,0 +1,3 @@
+Prismari Entered and as he did his attention was evenly split between Oryllia new form and the strange floating eye that reminded him of the being that always tried to eat him.... 
+
+“Greetings Oryllia I haven’t seen you in a while....you look great.... what the eye thingy.?” He said happily he truly was happy she had moved in

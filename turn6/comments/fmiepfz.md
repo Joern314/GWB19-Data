@@ -1,0 +1,3 @@
+"Salutations, Thool. Yes, they have made great works, yet they have shut themselves away in here. Beautiful as it is, it feels rather cramped," She gestured to the glowing canopy dome covering the crater, and smiled gently.    
+"And while these leaves are pretty, I can't wholly endorse them can I? I've yet to see how they deal with metal, and I may have to make stronger metals if they are close." She chuckled, hands intangibly tracing some colourful leaves, and sauntered over to look over Thool.    
+"Have you not changed? What did you make of the long sleep, I half expected you all to look like withered elders after so many millenia."

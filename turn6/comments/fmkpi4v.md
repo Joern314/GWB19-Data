@@ -1,0 +1,3 @@
+"Oh, then how did you get one, mother dear?" He shot back. "Is your leash so long you can visit the poor, lowly savages such as myself?"
+
+"I'm surprised, honestly, that those in your little tower would let their pet thief go off unwatched. Are they not concerned that you may steal the tower out from under them?" It was, admittedly, quite mean of him to say such things, but he was still annoyed at his the loss of his horn during their last battle. So a little verbal sparring was, in his opinion, more than fair game.

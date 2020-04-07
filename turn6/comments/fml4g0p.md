@@ -1,0 +1,3 @@
+Prismari looked at the hatch with discontent just another reason to not like the minor gods to his ever growing list.... to think he have to help move everything around... that just sounded boring. But he smiled and compelled all the same it was for lyva after 
+
+As Prismari found the bottles of blood and skeletons he rubbed his his temples “Lyva dear..... what are these......you know what never mind I don’t want to know. Just tell where to put them dear the front or the back.” Prismari said picking has battles carefully... he wasn’t sure if lyva had fully forgiven him for there rather nasty fight

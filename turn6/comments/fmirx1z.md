@@ -1,0 +1,13 @@
+"You're stingy." She complained, but nonetheless vanished off to honour the bargain.     
+
+---------------------------     
+Sabin was a human trader winding her way around the continent when she was visited. The spectacle of the gigantic black serpent filling the skies above made her recoil and almost call out to her crew, but they could not see it. See her.     
+The Burning Serpent trickled down from the sky that she was going about this all wrong. Too many crew members for this size of ship and the cargo, she would never make her fortune like this, she would lose everything to freeloaders if she kept going, never see her investments paid back.     
+Yet she could be helped, the Serpent said. Blood and Gold could flow together, if she offered the freeloaders, the ones dragging her down to the Skinless and the Skinner, then she could become greater than she ever dreamed.     
+With the hissing whispers in her ear, Sabin found herself doing so, casting down the most mutinous of her sailors once and then again when he tried to rise, the blood soaking into the wood. The others worked hard to avoid her wrath, each day the laziest could expect to be flogged, the bloody whip offered to the gods, and their ship grew faster and fuller.    
+When the ship made port in Bakraftel, the Serpent directed her to find other desperate folk, those seeking more and more, and show them what paying the blood price could bring.        
+Within a few weeks of stealthy work, smuggling criminals and teaching fanatics, Sabin conducted a great sacrifice and was reborn, hungrier than ever before with serpent-like fangs and golden eyes, gifted with an immortal life to pursue riches and feed the hungers of her gods.    
+
+----------------------
+[-6 Acts for Sabin Bloodline: -3 for Alluring Blood, their blood is an addictive blood-like substance, and Sabin vampires can often enthral dependants by offering blood for blood. -3 for Empathy, ability to sense emotions naturally.]    
+[-3 Acts to Prophet Sabin]

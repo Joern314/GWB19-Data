@@ -1,0 +1,3 @@
+Lyva had been sitting watching the docks, and tumbled and slumped over him as soon as he appeared, trying and failing to push him over.     
+"Heh, metal, are you crazy? They think metal's too valuable to use for things like walls, it's adorable." She giggled, smelling faintly different, a scent of blood clinging to her.     
+"The years have been fun. I've had a couple of mortal friends to speak to, I've learned to make more tails though I prefer one, I got rid of the screaming, and I experimented with generosity. Big mistake, not worth it." Lyva smiled, looking over him and his blade, "What of yourself? My mines don't hurt, do they?"

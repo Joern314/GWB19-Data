@@ -1,0 +1,2 @@
+There was a pause then a heavy ringing sound as Lyva began to laugh, slithering around him.    
+"You are smarter than you look, little one. But keep watching, mortals shall improve and the bees and ants will remain the same. That is a vital difference." She hummed, amused. "You still have my scale. I am glad that is treated with due value."

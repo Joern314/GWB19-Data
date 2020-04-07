@@ -1,0 +1,3 @@
+"I suppose that is true, there is no gain without some struggle. Even a tree needs to burst from a seed in order to grow" Thool pondered. "Perhaps I have been too protective of my people, shielding them largely from the outside world when there is so much it has to offer". 
+
+"A meeting place for the gods? I think we would all be well-served to make this place. It could be a tree sure, but in a show of good faith, I think it would be better if we collaborated on this project together. Perhaps even with some of the other gods? I can ask my friend Yashqal if they would be interested".

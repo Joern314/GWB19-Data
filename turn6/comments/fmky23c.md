@@ -1,0 +1,5 @@
+"I don't know, Nek seemed to fear you at the start then accept you as his son at the end. Don't worry about it, it took centuries for Mother to accept me too." Lyva said, "And for your information, the Sorcerer isn't my lover, those lines about us being the parents of the Apokyphs are purely metaphorical."      
+
+She sat up, arms across her chest, "It's not that I don't care, but I have faith in you, and panicking wouldn't make a good memory when being with you feels so perfect. Besides, everyone has different strengths- I'm better at physical, while the Sorcerer has wandered dozens of worlds so he knows eons of magic, and has a library of another wandering god to double that knowledge, so you should definitely ask."   
+
+"As for your promise, we're not centuries old anymore, you could nip off for five hundred years and return and it wouldn't feel that long compared to our eternity. If you're contemplating abandoning me forever, then... I'd take a considerably less calm reaction." She smiled madly, showing serpentine fangs. "Do you want a less relaxed reaction?"

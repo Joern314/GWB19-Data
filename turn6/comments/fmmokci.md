@@ -1,0 +1,3 @@
+Oryllia was again surprised by Lyva's visit to her room, but she welcomed her with a smile on her face. "Well, you're most welcome, Lyva. I hope we can start anew sometime soon."
+
+As Lyva referenced to her books, she said, "They're not. Some are bound that way because their information is crucial to the art of blessings and curses." Oryllia then led her to her scattered shelves, where many tomes sat, awaiting and locked up.

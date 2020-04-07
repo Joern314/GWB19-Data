@@ -1,0 +1,3 @@
+"Yep, agreed!" Lyva said perkily, and watched closely as she unlocked the volume before taking it delicately. "This is gorgeous. As expected of creation, so pretty and yet... heavy, like a star."     
+
+She ran her hands over the cover, resisting the urge to lick the metal, and opened the book eager to devour its contents. After a moment she seemed to realize that it was thick enough to not stand and read in the middle of the room, and so began to move to take a comfortable seat in the forge. Thankfully she stopped short, and sat with her tail in the flames, the book kept safe from the blazing fire.

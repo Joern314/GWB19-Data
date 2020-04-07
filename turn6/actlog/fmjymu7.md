@@ -1,0 +1,3 @@
+[-3 for a Prophet, -4 to terraform, -4 to bioform, -2 for Everwood Trees, -2 for Strider Elks, -5 for a comet, -23 for Servitors, +4 for Minor Gods Prompt, +5 for Beautiful Landscapes Prompt, +4 for Beautiful Creatures Prompt, +3 for Eyes Wide Open Prompt, +10 for Marco Prompts 1, 2, and 3, +3 for Mortal Struggle Prompt, Recovery Prompt: Guiding the Tribes, Recovery Prompt: The Holy Lands, Recovery Macro Prompts A and B, Crisis Prompt](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmjy7pv/)
+
+Total: -14

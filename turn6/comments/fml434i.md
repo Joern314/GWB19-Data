@@ -1,0 +1,3 @@
+"Right, that's a good idea, more like..." She waved her fingers, then paused in abject confusion as the items did  not leap into her imagined positions. "Oh. This isn't my hoard. Fine then, come and help me, Leyanna says it's not her job to deal with my wealth outside of my hoard, and she's a minor god so she won't go beyond her job."     
+
+She began to move things physically, following his ideas so the entranceway was more of a comfortable gallery, leading into rooms of valuables and historic pieces, and a comfortable bedroom and dressing room at the back. There were no souls on display, but Prismari did find Lyva had several literal skeletons in her collection, and numerous bottles of blood that seemed very fresh.

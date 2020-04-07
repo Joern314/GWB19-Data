@@ -1,0 +1,1 @@
+[\-3, +3 Crisis in the Holy Land and Purely Mortal Struggle](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmilp57?utm_source=share&utm_medium=web2x)
