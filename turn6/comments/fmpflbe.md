@@ -1,0 +1,3 @@
+The Sorcerer was in the process of transplanting one person's skill and a portion of their memories into another via the relatively new magic of necrurgy. It was a secret magic and so only available to those the Sorcerer taught or those other god provided knowledge thereof to with their own divine powers.
+
+In truth the Sorcerer had come to the battlefield to test out necrurgy as it was the first step in a new plan he had, thanks to the arrival of the jumbled in the world.
