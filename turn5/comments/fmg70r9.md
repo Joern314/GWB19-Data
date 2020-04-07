@@ -1,0 +1,7 @@
+A Stranger in A Strange Land \[Prompt: Local Goods to Trade + Here Be Dragons\]
+
+A large man, even by Yashool standards, sets up his stall in the marketplace of Wooxti-Kwashtol. A younger fellow trying to establish himself as an exotic merchant of fine wares would be a tall order, but he knew his product was a good one. The master Tree Smiths created a beautiful by-product of their armor-making, stripping away the opalescent undersides of the Yashqal Tree to make their armor left this gorgeous textile, and Saudeger was staking his life's fortune on selling this product to their neighbors. 
+
+Saudeger had enmeshed himself in the Wooxti culture, learning from the inhabitants of Shagorn that descended from this same tribe. Throughout his travels, Saudeger kept a diary of his ventures with crudely drawn maps. Occasionally, he would even purchase a map in the bazaar he set up in to compare to his own, honing the craft. He traveled near and far, even reaching as far as the Prismatic Planes, remarking the beauty and awe that he experienced in the city of  Raha'stal. "The finest cloth in the Great Forest!" Saudeger would proclaim, showing off its reflective and illustrious elegance. "Makes the finest of clothes even nobility will envy!" Every so often Saudeger would return to Shagorn, regailing all that would listen about his travels in vivid details. He is widely regarded as a hero, even given the honorific "Keremet Kashif" or "Great Explorer". 
+
+\[ /u/hpllamacrft /u/rhaegar1994  \]

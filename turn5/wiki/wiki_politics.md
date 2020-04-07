@@ -29,9 +29,17 @@ If they do this duty they are hooded and cloaked, faced hidden behind masks. The
 
 Rift Keeper society largely follows the conventions laid out by the Sorcerer for the future (See nations – Magocracy).
 
-### Blood Riders
+### Blood Riders Soceity
 
 Description: A collection of many different tribes living in the blood plains. Nomadic, herding deer and riding horses.
+
+**Values:** The Blood Riders value strength and action. A stronger leader is far more respected then a wise or intelligent leader.  
+Practical skills are also valued highly, ridding skill, leather-working, and fighting skills.
+
+**Structures:** The blood riders are separated in to many different tribes. While each one might have it's own custom and ways, they all value strength. As such, the chief tends to be the strongest warriors in the tribe, while the title often goes from father to son, it's not unusual for it to see the chief be challenged and defeated.  
+Alliances and blood feuds are common and change often, being so focused on the now and living life fully, they often do not focus on generation old grudges, if the oldest member of a tribe that remembers the original grudge dies, it often vanish with him.
+
+**Location:** Located all over the blood plains.
 
 ### Jumbled-Society
 
@@ -272,7 +280,43 @@ On the Kiln islands there is a patch of Rift Wood. It's Rift Trees have been car
 
 So it should not come as a surprise that around these gates a settlement of Apokryphs have collected. Worshipping the Sorcerer they founded the city of Epoidos here to guard these gates to the afterlife.
 
-While there is not yet much magic to study the Sorcerer intended for this town to become the worlds premiere center of magical learning. The town where the knowledge of everything magical in this world is kept. A veritable holy land of the Sorcerer, where those wanting to learn his teaching can flock together.
+While there is not yet much magic to study the Sorcerer intended for this town to become the worlds premiere center of magical learning. The town where the knowledge of everything magical in this world is kept. A veritable holy land of the Sorcerer, where those wanting to learn his teaching can flock together.            
+
+
+
+###Lyvkerel, Holy City of Metal
+
+Lyva: /u/smcadam
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)      
+
+A large city on the central Volcanic Kiln Island, dedicated to the working of metal, craftmanship and Trade. It is largely peopled by Apokryphs, and also holds the Kiln Forge, a volcanic enchanted forge deep in the mines. It famously works Kindlscal, a glowing magical metal.     
+
+   
+
+###Nisardel, City of Fish
+
+Lyva: /u/smcadam
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)      
+
+On the northern cape of the Echoing Jungle, the town of Nisardel grew on ocean fishing and trade with the islands, the land of the Jungle cut down and stripped away to become farmland, the great timbers used for solid houses and great ships.
+
+   
+
+  
+###Bakraftel, City of Rivers
+
+Lyva: /u/smcadam
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)      
+
+At the mouth of the Bakwagalis River, the city of Bakraftel grew, built on trading up river to the tribes in the Jungle and Hunting Grounds, and was one of the most multicultural cities, with humans and even Yashool visiting and sometimes staying.    
+
+
+
+
+
 
 ### Mogimal
 
@@ -307,6 +351,42 @@ This faction of Nkarlen is the most widespread, having fallen under the influenc
 Their center of power is Sralenkloon on the northern tip of Gbigolind.
 
 Other settlements/cities include: Googebi in the Savage Jungles south of Kzivo'gbamo, Mukzek on the edge of the inland sea halfway between Nkan'gbamo and Amalah
+
+### City of Wooxti-Kwashotl
+
+/u/hpllamacrft
+
+[Turn 5]
+(https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm7ygex?utm_source=share&utm_medium=web2x)
+
+The city of Wooxti-Kwashotl is named for the respective human and yashool tribal confederations that it is comprised of. It is located in the jungle of Primus, along the Bakwagalis river. Seasonal flooding turns the streets into canals. Buildings are built on mounds to prevent flood damage. Dancing is central to all public ceremonies in the city. All major societies of dance are represented: Whisker, Sting, Black Wing. During the Age of Cities its major industries were bronze working and bumblebird jelly harvesting. During this age the city had much contact with Thool's Crater and Raha'stal. 
+
+### Chalitsh 
+
+/u/hpllamacrft
+
+[Turn 6]
+(https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmilp57?utm_source=share&utm_medium=web2x)
+
+The trade route between Raha’stal and Wooxti-Kwashotl ran overland through the jungle and over the mountain range of Primus. This spawned a hospitality industry catering to merchants making the months-long journey on horseback. The Crater of Thool was one such popular stop, so was Chalitsh to the West, a Kwashotl yashool settlement at the confluence of the Bakwagalis and its tributary. They received a Black Wing governor from Shata in the year 5, and their appointments continued to come from the capital. 
+
+### Vazari Clans
+
+/u/CruelObsidian
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm9tx4q?utm_source=share&utm_medium=web2x)
+
+The tribes of Humans that call the Tadaloan Islands Chain home, worship Malaphet as their patron. They employ the mindburn spell to deal with high level criminals while controlling the Unliving through a Mental Domination inherent to all Vasari that operates best on those with little intelligence
+
+###Redgash
+
+/u/Plintstorm 
+
+[Turn 6](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/)
+
+Redgash is located near one of the rivers in the Savage jungle.  
+Worshiping Azrakal and Sarash, they they call them the red god and the black lady. (But they think the black lady is acctualy the War goddess Mair.
+
 
 ## Organizations
 
