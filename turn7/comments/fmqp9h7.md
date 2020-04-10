@@ -1,0 +1,5 @@
+Kain put a hand on gon shoulder “ they are your family.... the three of you share a strange bound... or I assumed so... as for why the didn’t tell you. Perhaps they assumed you knew... and honestly I was borne and rises a god.... godsight to one such as myself... is natural.... lyva who is an ascended such as your self would probably be better able to explain “ kain shurged 
+
+Then began pondering all gon had said a golden feathered Gryn whom was pompous at that... “ I believe with the help of Dawri the god of fate and time, that we could likely combine the power of are spheres to learn more..... but gon, why not just throw it away ?.” Kain said with a small pause then looked back in to the sky above 
+
+“ As for your divine tether I would suggest looking around for a god to operate on it too detach it “ kain said hand still on gon shoulder trying to be somewhat comforting

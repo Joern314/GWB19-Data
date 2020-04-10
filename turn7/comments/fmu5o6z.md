@@ -1,0 +1,5 @@
+"Alright, I'm warmed up," Lyva grinned as she strained back, then suddenly pinged close like a catapult stone, flowing around his counter attack, and licked his wound playfully. "Growing scales? I'll do the same then."      
+
+Then she hurtled past him, her tail attaching and merging into the whip. Her form expanded, molten metal turning a dark heavy iron as it stretched longer and longer, smirking face lost amidst draconic jaws. Then she grew greater and greater still, larger than she had been at her ascension, double that, until the gargantuan golden dragon loomed as large as Celastra had been, though not quite as ridiculously long, the end of her tail coiled around his arm.    
+
+"Hmm, how about we get you out of your comfort zone, lovely?" She purred, zig zagging like a spring, then leapt up into the void, trying to pull him with her.

@@ -1,0 +1,3 @@
+“ is it not a creation between the essence of  you and my son... if that isn’t a child I’m not sure what to call it. “ the storm said with a laugh 
+
+“ my offspring where older when we had Prismari.... yes I should return to them... but I can’t leave with out the boy!! He my family too! He’s mad now... but one day he will forgive me  one day... but will he forgive the one whom tried to give away his child.” Kain said with a coldness it seemed lyva and prismari avoiding and hating him had brought out some of the worse in kain. And perhaps he needed to be brought back to reality

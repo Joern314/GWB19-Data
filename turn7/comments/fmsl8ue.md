@@ -1,0 +1,7 @@
+Gon responded to the shape change by flinging the lava blade at her location, trying to evaporate the mercury she had become via the heat radiating from the blade because of its relatively low boiling temperature. In doing so, however, he disarmed himself and failed to block the oncoming blades except one that he caught in his hand.
+
+Blood or rather lava flowed from the wounds and he staggered forward towards her again as the blades melted an what remained of them clattered to the ground. Vengeance responded by opening up holes in her puddle or causing her to split into different puddles, but in her state it was quite likely she wouldn't feel any pain.
+
+"Vengeanssse..." Gon growled in a voice that had a feral ring to it as he coughed up some lava-blood. He threw his head back and roared, pushing his clawed hand into a wound on his side to draw out a second lava blade before he bounded towards her, his wounds slowly turning to stone scales as the lava cooled.
+
+\[The Vengeance aura deals wounds in equivalent magnitude; for example, If you stabbed Gon through the heart, but you had multiple hearts it would be like you were stabbed through all of them. Pain is not actually a part of it. If you can't feel pain then you won't. A liquid state is an interesting gray area, actually. I figure splitting up the puddle made the most sense.\]

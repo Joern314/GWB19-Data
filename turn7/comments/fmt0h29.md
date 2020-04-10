@@ -1,0 +1,3 @@
+"Right bye Oryllia." Lyva flicked her tail to close the door to the witch-queen's chambers, and stood up, hefted the metal blob.       
+
+"Prismari, did you undergo mitosis while I was biting you? Or did Kain do this?" She asked coldly, "Because I have not had any life springing from my insides, no matter how grossly dis-proportioned mortals have decided I must be. Someone made this with my essence without my permission, and I am going to find out who."

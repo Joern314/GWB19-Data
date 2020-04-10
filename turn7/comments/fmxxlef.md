@@ -1,0 +1,3 @@
+"I'm aching all over and feeling sick. Hmmph, you made me use my trump card, it's one of the worst tasting metals, I feel like I need a shower- can you work with me? I can't lift you alone," She muttered, curled her legs and tail under him, and struggled to dump him on the bed.    
+
+"This is new. And fascinating," She added, tugging at his tail playfully, and produced a mirror from her hatch, then the Retaliator and another smaller blade. Lyva hesitated for a breath, then smirked and turned the mirror to him, kissing his nose, "You're looking more original and less Nek-ish. It's quite fearsome, my Hunger, though not quite as fetching as me. And you've not grown any runes I can see, so... maybe you're just at the age where your body goes through certain changes?"

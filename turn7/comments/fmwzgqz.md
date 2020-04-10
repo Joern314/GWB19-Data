@@ -1,0 +1,1 @@
+If Gon was aware of the changes he made no indication of such and replied with only a deep growl as he crouched low, lashed his own tail against the sun sending off shards of stone that ignited and blazed like green falling stars for a split second. After a moment of watching her movements, he leapt at her, intent on knocking her over and pinning her beneath his claws.

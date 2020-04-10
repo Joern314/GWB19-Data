@@ -1,0 +1,5 @@
+"Yes, aside from my panels, I have metal flesh, blood and bone underneath my skin, I'm not hollow," Lyva rapped her knuckle off her skull to demonstrate, only for a ruby to escape, and her to scramble to catch it. "Void-guts! Argh, there, now stay. And yes, as you can see, reshaping my skin is not an easy matter, but I have a special way of managing that. I'm a goddess and I'll do what I want."    
+
+She pushed the ruby back in, then shook her hand, ensuring no other gems escaped, "Though really I've had to re-engineer this form to have varying alloys for the arm rather than a single element, and my tail and other form too to keep my weight distribution from going all over the place. That's thanks to Ingali, minor God of Inspiration- you've probably seen him flit around, tiny golden dragon, less serpentine and more batlike than I. Damn Livi's got him calling me mother too."     
+
+"Anyway, now I see you I have an idea of my own. Could I have a good deal of your blood, my Hunger?"
