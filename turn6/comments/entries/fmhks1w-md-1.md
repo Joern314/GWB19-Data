@@ -1,0 +1,2 @@
+# None [None]
+"Are you still here, little thing?" A deep female voice echoed over Sunda as he saw the great golden dragon once more, looking significantly larger and longer and older than he remembered. Her horns and mane seemed longer, and rippling slither through the sky more lazy and confident. "First the serpent, then Kain then you, can noone figure out how to leave this world?"

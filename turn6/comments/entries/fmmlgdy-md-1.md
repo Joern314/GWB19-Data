@@ -1,0 +1,8 @@
+# None [None]
+Gon, having noticed a great amount of commotion on the moon decided he should go have a look. He wasn't one for looking up at the skies normally since he had made a home for himself in the temple caves of Nkan'gbamo as that would require looking through the mountains above. Gon found the tower curious and noticed everyone setting up rooms in the tower, even what appeared to be a nice pool of blood. Not one to live above ground, he noticed that the tower lacked a basement so he made one.
+
+Into the stone and dirt below the surface he carved many round and luscious chambers with circular columns of the finest marble and high vaulted ceilings, this time crafted to match the various constellations in the night sky, and brought along Nkom to naturally form the finest gemstone furniture; somehow soft like fabric but with all the beauty of rubies, sapphires, emeralds, diamond, etc. 
+
+He also built into the walls naturally formed mosaics of all of the gods against a scene of their respective holy lands accented with numerous gemstones. At the center he created the largest chamber with a naturally formed long table of quartz to host all of the gods should there ever be a proper feast.
+
+\[-2 for the Temple-Caves of the Lunar Sanctum: a basement for the tower above.\]

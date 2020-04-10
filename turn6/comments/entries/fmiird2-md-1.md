@@ -1,0 +1,4 @@
+# None [None]
+"That is the same reason I blessed my people with the gift of a longer lifespan. "Though", Thool hesitated, "I wonder if it is a curse more than a blessing sometimes. I worry that I cannot protect them from every danger in this world". Thool began to look melancholy.
+
+"It seems that Oryllia and I have very different ideas of friendship. To me friendship means working together and helping. You know, Yashqal is a friend of mine. Together we made these beings, the Yashool that is. That's what friends do". Thool said hopefully. "It seems that we all could use some friends these days".

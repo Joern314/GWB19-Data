@@ -1,0 +1,8 @@
+# None [None]
+The products of The Sorcerer's alterations to reality were interesting to Gon. This death god had separated the soul and the force that keeps bodies alive into two separate things. Whats more, he had this power was explosive. It naturally converted to heat and light when released into the environment. Gon saw plenty of possibilities for this new arrangement. If the animating force could be harnessed in some way and concentrated. It could perhaps be extracted and used to power golems or other creatures that had been turned into statues by his handy little petrification magic. That would need more consideration.
+
+Research was one thing, but field trials would be necessary, luckily there were plenty of goblins to spare. So Gon breathed into the earth around the grasslands of the second continent a new substance, Oxeblas. These bright red and opaque gems gathered the essence of animation from when unliving were put down in the near vicinity of them. This essence was slowly concentrated as more and more unliving were eliminated in close proximity. As they took in more and more essence they would slowly turn black and become more and more brittle.
+
+When one of these crystals was broken that animating force would be released all at once and convert into magic energy like normal. The size of these crystals determines their capacity to contain this animating force; a totally black crystal cannot hold any more.
+
+\[-3 for Oxeblas, a dangerous magic / animating force storing gem. It is unstable, explosive, and concentrates this force. -2 to make naturally occurring deposits in the grasslands (Gbigolind) of the second continent.\]

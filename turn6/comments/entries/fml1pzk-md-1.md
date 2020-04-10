@@ -1,0 +1,2 @@
+# None [None]
+"No, you're a god, chances are good you'd return. You'll probably be back. You're awesome and strong and fierce and one of the smartest I know, you can't act like I won't see you if you leave!" Lyva snarled, lunging upright as her emotions suddenly boiled over. "You're not getting the sword back unless you promise to try and return if you leave! If not... then it's part of you, I deserve to keep part of you! Well, not deserve, but I want to!"

@@ -1,0 +1,5 @@
+# None [None]
+The door opened to reveal Lyva in her mercury form, looking somewhat embarrassed as she tugged him inside.    
+The rooms of the apartment were all decorated, albeit it looked like Lyva had changed her mind several times while doing so and had yet to finish. One room was incredibly gaudy and overly valuable, with golden furniture and crystals, another section had plinths with old quiet artefacts on them, some he recognised from her past like a flail she had made and a crown she had worn, others unknown to him. Yet another section was humble, with wooden mundane furniture and banners on the wall of sanctuary, and then another corner of the room was... a hoard of unsorted items, boxes and chests stacked at random, and another room had several tapestries of the gods of either world.    
+
+"I wanted to do everything... it didn't work..." Lyva whispered quietly, and took the painting to add to the jumbled crazy section. "Thankyou for painting Gon too."

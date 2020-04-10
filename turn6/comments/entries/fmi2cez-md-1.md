@@ -1,0 +1,2 @@
+# None [None]
+"Azrakel, the years have... not been kind to you. Didn't you regrow your skin?" Lyva said coolly as she approached him, confused by his appearance. "I'd like to make a trade. One we can discuss this time, unless you want to repeat how last time went?"

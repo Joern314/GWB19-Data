@@ -1,0 +1,8 @@
+# None [None]
+**Crisis: Tiny Problems in the Holy Land**
+
+Nkloig Sekzil had grown to be quite a large city, but unlike Kzivo'gbamo it was not located in the seemingly endless and twisting caverns of the shattered mountains. This invariably led to a housing problem. The Nkarlen of Nkloig Sekzil had a large population of Gon's priests, the Ranos, who were exempt from menial duties. Added to the rapid increase in goblin population, this meant that caves could not be dug fast enough to accommodate the new generations. Many goblins were thus forced to build houses on the surface and spend more time above ground, thus slowly turning greener and weakening the power of the holy land.
+
+The Ranos, so connected to the history of the land soon became increasingly upset with these "greenskins" and sought the help of the most powerful local Misrei to help. The Nkelinego Misrei happily used this request to expand their power, and they created and enforced a mandate of round-the-clock digging for new homes. This was a fine temporary solution, but the criminal nature of the goblins meant that many other Misrei got involved in the same trade and that the caves were, perhaps, not up to snuff in terms of safety.
+
+Those who refused these drastic measures or who spoke up about the unsafe conditions of the new caves often disappeared, never to be heard from again. Some whole families who refused, including a few of the Ranos, were exiled to the green grasslands of Gbigolind. It is from this time period that Nkeloon or "greenskin", became something of an insulting term to the religious sect of the goblins who believed that it showed that one had spent too long away from the cool embrace of the earth.

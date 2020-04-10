@@ -1,0 +1,2 @@
+# None [None]
+"Well. Feel free to visit again. Your work is not half-bad." Glypha answered. Picking up the legs with the handfeet she had prepared before and begun putting them on the body. "In fact I am growing weary of making bone needles. I might very likely visit you to acquire metal ones! Until then I wish you farwell."

@@ -1,0 +1,2 @@
+# None [None]
+Lyva frowned, trying to track the acronym, then seemed to decide she was hallucinating or some such and dove back into the flames and coals, burrowing into the forge to sleep. She probably wouldn't be cursed, and just now a good rest felt worth the risk.

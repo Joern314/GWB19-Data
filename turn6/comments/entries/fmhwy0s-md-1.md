@@ -1,0 +1,3 @@
+# None [None]
+Lyva felt a new greed on the world. The desire for death wasn't new, the desire to kill was old and common, but who would just desire blood without caring about magic or other food?    
+And so she appeared at the shrine, curious to examine the bearer of this new hunger she felt.

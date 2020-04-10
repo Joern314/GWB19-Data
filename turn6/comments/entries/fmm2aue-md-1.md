@@ -1,0 +1,2 @@
+# None [None]
+The only thing that happen was "your a failure" written in blood next to the painting.

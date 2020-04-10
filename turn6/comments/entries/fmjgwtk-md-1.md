@@ -1,0 +1,4 @@
+# None [None]
+It didn't take long for the tower to be tinted gold as Lyva slithered up it, then turned to her humanoid self to explore, finding her throne very comfortable. Then she explored the other blank floors, claiming an upper one for herself.      
+
+A few hours later, Lyva decided to appear in Prismari's floor with a mischievous smile. "Greetings hero, I don't recall inviting you to this gathering... but you are most welcome of course, you coined onto the idea quickly. What have you built here? Can I see?"

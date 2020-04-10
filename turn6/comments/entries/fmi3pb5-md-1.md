@@ -1,0 +1,3 @@
+# None [None]
+There was a solid CLANG like hitting a bell, and Lyva toppled over, cracks spreading around her eyes before she snorted and turned to a dark bluish metal, armoured plates forming over her metal skin for some reason.      
+"I was actually going to ask for some of your blood, so if you want to fight I'm happy to take more of you," She grimaced, then suddenly lashed her tail out, a serpentine mouth opening on the end to coil around and bite into his ankle, while the goddess jumped upright, fingers turning to knife-like claws.

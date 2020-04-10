@@ -1,0 +1,4 @@
+# None [None]
+Prismari was slightly put off by the way Azrakal made his appearance yet he was a blood god maybe it was just he method... Prismari decided he wouldn’t judge 
+
+“^I’m ^almost ^afraid ^to ^ask..... ^what ^should ^I ^be ^hearing... “ his tone suddenly changed “if it’s the blood drinkers.... I’m annoyed but blood is your domain and the moon is neutral ground... so let not fight .” Prismari said being rather diplomatic though he did have a bone to pick. They where nasty evil beings but now was not the place nor the time

@@ -1,0 +1,3 @@
+# None [None]
+Lyva shook it uncomfortably, then smiled, showing rows of sharp triangular teeth. "Very good. Now, my blood."       
+Then, serpent like, she struck into his neck, seeking to drink whatever he would allow.

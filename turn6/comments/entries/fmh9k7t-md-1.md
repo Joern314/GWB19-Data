@@ -1,0 +1,2 @@
+# None [None]
+"If you can endure the pain of our training," the third Champion said, "and defend the Well with your life, then we will be proud to call you our Brother."
