@@ -119,7 +119,10 @@
 ### The Sorcerer's Runes
 #### Secret Runes
 ##### Necromancy
+###### Katabasis
+###### Purposes
 ###### Spells
+###### Summoning
 ##### Necrurgy
 # The World
 ## Celestial Bodies
