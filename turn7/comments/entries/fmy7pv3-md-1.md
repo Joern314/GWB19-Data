@@ -1,0 +1,6 @@
+# None [None]
+"Better now. Everything hurts anyway." Lyva yawned and chomped down on her dagger, seeming to sober slightly from the meal. Then she stood, set the Retaliator in both hands, and with far more care and precision began to carve an opening just below the ribs.    
+
+Once cut, she breathed and whispered to the heart, which melted and uncured into a serpentine animated tendril of gold. At her command and control, it slithered through the incision, around the organs, and began to reform and beat, drawing his blood through it and out. Through it and out.    
+
+Lyva clenched and opened her hand in time with the beat, stabilising it, then collapsed across him, tongue tickling his neck. "There...there, now if you run away, your heart will remember where you'll belong... and maybe you'll find carvings on your skin saying *merchant* and *Lyva* and... I'm Hungry and I'm tired...stay still you're warmer than my bed."

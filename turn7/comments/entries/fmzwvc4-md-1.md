@@ -1,0 +1,2 @@
+# None [None]
+"So you are it's creator. You made a child just to abandon her? YOU HAVE LEARNED NOTHING!" Lyva ranted, her own fury ever greater. She roared and shifted to lightning, lunging into the storms heart to call all the lightning into herself, to capture it in coils of copper within.

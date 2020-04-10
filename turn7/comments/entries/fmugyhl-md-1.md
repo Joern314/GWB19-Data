@@ -1,0 +1,4 @@
+# None [None]
+"That tickles, stop!" Lyva broke into rumbling giggles at the sensation, and her manic course became more and more crazed as she tried to nip and bash and claw him off, almost tying herself into a knot.     
+
+Thus it came as a surprise when she suddenly went into a hairpin bend and swept along a comet of her own creation, the heavy Forktongue Comet which blitzed past her iron scales by mere inches and slammed into her passenger.

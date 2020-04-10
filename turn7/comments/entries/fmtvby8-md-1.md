@@ -1,0 +1,4 @@
+# None [None]
+“Friend what reason do I have to lie... I have always been true to you... why would I god of heroes start lying to my friend now?” Prismari questioned 
+
+“ I would like proof of kains meddling as well. Lyva claimed she burnt a note.... I to would like to know if she was keeping secrets.... this isn’t the time to fight... would you really harm a child.” Prismari asked read to freeze all precipitation in the air to create a wall so he and the baby could run if need be

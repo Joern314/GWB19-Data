@@ -1,0 +1,2 @@
+# None [None]
+Oryllia leaned back in her chair, saying, "Well, it's a story. I had been cursing the land, and it wasn't until I cursed Lyva that I saw the errors of my ways. She opened my eyes to my mistakes, ones that I was either oblivious to, or ones that I simply ignored for the sake of my ego."

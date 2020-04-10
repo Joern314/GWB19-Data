@@ -1,0 +1,16 @@
+# None [None]
+Malaphet watched his mortals as they fought among themselves with an emotion akin to disappointment filling the portion of his being that was focused upon them, for as they were they would never be capable of serving the role he would come to require of them. And so he reached another tendril down through the clouds to touch the mind of a new Vasari tribesman to make his emissary, anyone would do Malaphet figured and so he reached out to the first one to catch his attention. 
+
+Balhom had always felt he was a man destined for great things, greater then the disappointing family he had been born to and greater then the quiet tribe from which he was raised in. Despite his aspirations of grandeur, life had rarely gone his way, he had been set aside as his father's primary heir in favor of some boy born of his fathers Unliving harem, his friends had cast him aside, claiming he was psychotic while his Mother in her hatred of his father and unable to act upon that turned it upon Balhom. So when he felt a shock run through his mind and a tentacle hanging from the sky next to him he was overwhelmed by a feeling of vindication and renewed conviction.
+
+Malaphet imparted visions of what he wanted from the young man he had selected, how he wanted Balhom to turn his fellows back to the correct path as his prophet. Balhom of course, quickly agreed to this, though in his newly ignited ambition, beseeched Malaphet for more, so that he might better serve the will of his god. Malaphet saw the wisdom of this, just as he saw how the minds of some of his heretical followers had already set their minds to their false beliefs. So from the tip of his dangling tendril he wove a mantle, imbued with a minuscule amount of his power, and drapped it over the shoulders of his new Prophet before withdrawing his tentacle into the night skies.
+
+Balhom quickly set about gathering the people of his village, revealing that their divine Patron had spoken to him. Many were skeptical at first, but the mantle that seemed as if it were carved out of the night sky itself, stars seeming to swirl from within it's folds. All doubts were blown away when Balhom floated into the sky to hover above them, the cloak billowing in the wind, but now seeming to emit an unearthly glow that draped not only itself but also Balhom in it's light. After having convinced the village of his status as prophet Balhom began to select those he knew as heretics(it was a small village and word got around, especially to those that nobody cared to guard their tongue.)  and he offered them a choice, renounce their heresy, or be forced to experience the First Death by his hand. Many chose to renounce their heresy in favor of Balhom's display of power.
+
+From there he left, heading to the various villages and proving to them his status as prophet before heading to the island from which their people had first called home, claiming the Prophet Minaera's temple that had lain empty for the past 250 years since her death. From there he began to fashion a proto-city from which he would rule over the Vasari tribes.
+
+\[-3 acts for create Prophet, Belhom\]
+
+\[-9 total acts for Artifact: Mantle of The Stars, -3 acts for blessing of flight, -6 acts for blessing of channeled plasma blasts that emerge from the mantle.\]
+
+\[Crisis, Heresy 1 solved\]

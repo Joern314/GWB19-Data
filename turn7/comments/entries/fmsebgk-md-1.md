@@ -1,0 +1,6 @@
+# None [None]
+Lyva caught the Retaliator and immediately slipped it into her hoard, before reaching into her hatch and drawing out a familiar long blade cutlass, with small holes like pores along its length. She raised it, frowned, then switched it to her right hand, and produced a heavy short sword instead, weighing it indecisively.    
+
+"Ah... hmm, screw it." Lyva muttered after a moment, before her back burst open and an armoury of weapons burst out, hovering around her like jagged sharp wings. "I'm not in a picky mood."     
+
+Then she blitzed forwards, swooping up on bladed wings to hack and swing at him, barely using her hands for the swords at all. She kept faking out, moving to meet or block his molten weapon, only to drop the sword and let it slide back without hitting, while the storm of weapons hurtled around him, threatening and yet not hurting him.

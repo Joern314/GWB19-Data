@@ -1,0 +1,4 @@
+# None [None]
+"Wai-" Gon tried to argue but was too late. He wasn't really sure that he had won if he had simply woken up first. The brutal seen made him shiver, but he accepted that this was part of the exchange, even though he didn't enjoy watching Lyva in pain. The Retaliator too seemed to shiver oddly.
+
+"Herrre." he growled as he summoned up some strength to point to the white scar in the center of his chest and clawed into it slightly. "I don't have the strength to rip open my own chest just now, but I promise... you won't feel it if you do. There is no vengeance from this."

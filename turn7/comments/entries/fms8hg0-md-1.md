@@ -1,0 +1,2 @@
+# None [None]
+"No. If I want a child, I'll choose to have one. I won't be robbed of that." Lyva mumbled, her eyes shiny and almost tearful. "You don't get to decide for me. Just mmmm at Oryllia and see what she does, alright? I don't trust her, so you're a good test for her."

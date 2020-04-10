@@ -1,0 +1,2 @@
+# None [None]
+Gon showed little to no interest in protecting himself, instead fighting her like he had when they had first met; advancing a step towards her with every swing, trying to stay right up in her face, or at least in within arms reach. Every time she would fake he would advance again laughing the whole time. Strikes on him were reflected once more to her, as per his usual aura. Where she struck flesh, glowing lava would come out instead of blood, but slower and more ponderous.

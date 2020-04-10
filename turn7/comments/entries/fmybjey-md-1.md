@@ -1,0 +1,6 @@
+# None [None]
+Gon's tail thumped on the bed as she stabbed him and he shook his head in pain. The Retaliator seemed to hurt him more than anything, but he didn't even try to stop Lyva.
+
+Once it was done, Gon felt more alive than ever since becoming a proper god. His pulse had returned and in someways a small amount of strength. As Lyva slumped onto him his breathing returned to normal and he pet her hair gently with a clawed hand while he brought the other up to his neck to feel his pulse and turning his head to one side.
+
+"Don't forget to take your payment, my beautiful star. I believe you wanted a lot  of my blood? If you won't take it as payment for your heart... take it in payment for a wonderful fight. It feels like it is moving again thanks to you so drink up a share." Gon rumbled with soft laughter underneath her.

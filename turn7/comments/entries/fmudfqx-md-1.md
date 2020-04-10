@@ -1,0 +1,2 @@
+# None [None]
+"Sorry, deeear! Add it to my tab!" Gon called back with a laugh and there was a clank as she passed by him. Borrowing from her ideas of changing metals, with some effort, he turned his clawed hand a into a dark black lodestone and magnetically clung to her iron form. He twisted to try to get his feet to cling to he but failed, having some difficulty with only one hand attached and her constant movement.

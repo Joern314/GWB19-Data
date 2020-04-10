@@ -1,0 +1,2 @@
+# None [None]
+Oryllia saw Gon's battered body, equally as confused about his shape as he was about her change. "Yeah, I saw the errors of my ways, thanks to Lyva. But, she's clearly a hypocrite. She tried giving away her baby to me, and I feel like she should be responsible for her own child."

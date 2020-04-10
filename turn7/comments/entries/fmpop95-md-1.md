@@ -1,0 +1,4 @@
+# None [None]
+"In fact that is the project I am currently working on. The new goddess, Glypha, her name was I think made it possible for her mortals to create life bodies by stitching together body parts. I intend after procuring a host of suitable memories and skills, as well as body parts to combine magic and this new art of sewing flesh to combine as close to a perfect mortal as possible. " The Sorcerer elaborated excitedly. 
+
+After listening to Gon he answered. "If you come back to me later and give me some time to consult my mentor's record I might be able to give you an answer. But with speaking from experience, with a large enough quantity of divine, magical or technological acumen everything is possible."
