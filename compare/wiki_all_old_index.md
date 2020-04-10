@@ -42,7 +42,7 @@
 ## Cultures
 ### Apokryph-Society
 #### The Rift Keepers
-### Blood Riders
+### Blood Riders Soceity
 ### Jumbled-Society
 ### Thyvian
 ## Mortal Races
@@ -52,19 +52,27 @@
 ### Nkarlen, the Cave Goblins
 ### Yashool
 ## Nations
+### Bakraftel, City of Rivers
+### Chalitsh
 ### The city of Raha’stal
+### City of Wooxti-Kwashotl
 ### The City on the Well
 #### Civil Defense
 #### The Essence Economy
 #### Gwanyin Technology
+#### The Roads to Gwanyin
 #### Subject Villages
 ### Enkenea
 ### Herding the Masses - The Holy City of Thyval
+### Lyvkerel, Holy City of Metal
 ### The Magocracy
 #### Epoidos and The White Gates
 ### Mogimal
+### Nisardel, City of Fish
+### Redgash
 ### Sanctuary
 ### Sodemon
+### Vazari Clans
 ## Organizations
 ### Holy Order of the Starlit Saint
 ### The Ranos
@@ -80,17 +88,10 @@
 ## Technology
 # The Supernatural
 ## Artifacts
+### Blade of the First King
 ### The Blood Dagger
 ### The Retaliator
 ## Divine Law
-## Magics
-### Arrow Spells
-### Blood Empowerment
-### Blood Storage
-### Magic Arrows
-### The Mindburn spell
-### Petrification Magic
-### The Sorcerer's Runes
 ## Metaphysics
 ### Fidelity
 ### Knitting Flesh
@@ -107,10 +108,23 @@
 ## Planes
 ### The Rift
 #### Locations in the Rift
+## SecretMagics
+### Arrow Spells
+### Blood Empowerment
+### Blood Storage
+### Magic Arrows
+### The Mindburn spell
+### Petrification Magic
+### The Sorcerer's Runes
+#### Secret Runes
+##### Necromancy
+###### Spells
+##### Necrurgy
 # The World
 ## Celestial Bodies
 ### The Arrow
 ### The Gates
+### The Red Star
 ### Segil'reld, The Great Bird
 ### The Wall
 ## Landmarks
@@ -126,6 +140,7 @@
 ### Magic Eater Fungus
 ### Nightwalker
 ### Rift Tree
+### Sea Pups
 ### Vanilin
 ## Materials
 ### Kindlscal

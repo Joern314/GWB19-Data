@@ -369,6 +369,10 @@ She appears as a white feathered gryn dressed in white and wearing a black blind
 
 ### Sarash
 
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fln8poy/)
+
 Description: Minor goddess who oversees pain among mortals. Obsessed with Azrakal.
 
 ### The Sisters of Worship, Yinquel, Chantra and Vesper
@@ -450,9 +454,17 @@ If they do this duty they are hooded and cloaked, faced hidden behind masks. The
 
 Rift Keeper society largely follows the conventions laid out by the Sorcerer for the future (See nations – Magocracy).
 
-### Blood Riders
+### Blood Riders Soceity
 
 Description: A collection of many different tribes living in the blood plains. Nomadic, herding deer and riding horses.
+
+**Values:** The Blood Riders value strength and action. A stronger leader is far more respected then a wise or intelligent leader.  
+Practical skills are also valued highly, ridding skill, leather-working, and fighting skills.
+
+**Structures:** The blood riders are separated in to many different tribes. While each one might have it's own custom and ways, they all value strength. As such, the chief tends to be the strongest warriors in the tribe, while the title often goes from father to son, it's not unusual for it to see the chief be challenged and defeated.  
+Alliances and blood feuds are common and change often, being so focused on the now and living life fully, they often do not focus on generation old grudges, if the oldest member of a tribe that remembers the original grudge dies, it often vanish with him.
+
+**Location:** Located all over the blood plains.
 
 ### Jumbled-Society
 
@@ -534,6 +546,28 @@ They have a naturally agile and skinny physique allowing them to slip through th
 
 ## Nations
 
+### Bakraftel, City of Rivers
+
+Lyva: /u/smcadam
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)      
+
+At the mouth of the Bakwagalis River, the city of Bakraftel grew, built on trading up river to the tribes in the Jungle and Hunting Grounds, and was one of the most multicultural cities, with humans and even Yashool visiting and sometimes staying.    
+
+
+
+
+
+
+### Chalitsh
+
+/u/hpllamacrft
+
+[Turn 6]
+(https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmilp57?utm_source=share&utm_medium=web2x)
+
+The trade route between Raha’stal and Wooxti-Kwashotl ran overland through the jungle and over the mountain range of Primus. This spawned a hospitality industry catering to merchants making the months-long journey on horseback. The Crater of Thool was one such popular stop, so was Chalitsh to the West, a Kwashotl yashool settlement at the confluence of the Bakwagalis and its tributary. They received a Black Wing governor from Shata in the year 5, and their appointments continued to come from the capital. 
+
 ### The city of Raha’stal
 
 Over the years as the beast slayer Rahab strength and night grew so to did the village of the prismatic plains
@@ -548,6 +582,15 @@ Over the years as Raha’stal grew other tribes of the prismatic plains cane to 
 That wasn’t the only reason the population of Raha’stal boomed no one of its hero residents in the first half of its Existence named Umah the green handed discovered a great way to feed the nation with the technique of Moderate Farming(-4 for moderate farming ) with a little helping hand of Prismari even if she didn’t know and was accredited with the creation. 
 
 Mortals also stayed for the general sense of community, lead by what where  once the zepho tribe, yet it had become the zepho guild of heroes , whom welcomed  any and all into its ranks. So long as they could uphold the ideas that all must who join must help the weaker members of the ever growing city
+### City of Wooxti-Kwashotl
+
+/u/hpllamacrft
+
+[Turn 5]
+(https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm7ygex?utm_source=share&utm_medium=web2x)
+
+The city of Wooxti-Kwashotl is named for the respective human and yashool tribal confederations that it is comprised of. It is located in the jungle of Primus, along the Bakwagalis river. Seasonal flooding turns the streets into canals. Buildings are built on mounds to prevent flood damage. Dancing is central to all public ceremonies in the city. All major societies of dance are represented: Whisker, Sting, Black Wing. During the Age of Cities its major industries were bronze working and bumblebird jelly harvesting. During this age the city had much contact with Thool's Crater and Raha'stal. 
+
 ### The City on the Well
 
 The Worshipers of Mair have built a pale reflection of the Temple of Life, and they have begun to build a city around it. This City's Name is Gwanyin. Immigrants were initially drawn to the City by the promise of Life Essence. They were made to stay within the city by the easy access to life-saving Essence, and the comforts born of the City's rapidly advancing technology.
@@ -663,6 +706,16 @@ Religion - The Thyvians worship a god called the Angel of Purity, a being said t
 
 Government - Thyval is governed by a council called the "Fair Elders", who are voted upon by the residents of the city every 7 years. Within the central spire of the city sits the Erudite Vault, where the Elders meet to consult with each other on governing the city.
 
+### Lyvkerel, Holy City of Metal
+
+Lyva: /u/smcadam
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)      
+
+A large city on the central Volcanic Kiln Island, dedicated to the working of metal, craftmanship and Trade. It is largely peopled by Apokryphs, and also holds the Kiln Forge, a volcanic enchanted forge deep in the mines. It famously works Kindlscal, a glowing magical metal.     
+
+   
+
 ### The Magocracy
 
 /u/Gwydion-Drys 
@@ -693,7 +746,9 @@ On the Kiln islands there is a patch of Rift Wood. It's Rift Trees have been car
 
 So it should not come as a surprise that around these gates a settlement of Apokryphs have collected. Worshipping the Sorcerer they founded the city of Epoidos here to guard these gates to the afterlife.
 
-While there is not yet much magic to study the Sorcerer intended for this town to become the worlds premiere center of magical learning. The town where the knowledge of everything magical in this world is kept. A veritable holy land of the Sorcerer, where those wanting to learn his teaching can flock together.
+While there is not yet much magic to study the Sorcerer intended for this town to become the worlds premiere center of magical learning. The town where the knowledge of everything magical in this world is kept. A veritable holy land of the Sorcerer, where those wanting to learn his teaching can flock together.            
+
+
 
 ### Mogimal
 
@@ -704,6 +759,27 @@ While there is not yet much magic to study the Sorcerer intended for this town t
 The most powerful of all the Nkarlen tribes, the Mogimal control the Nkarlen capital city of Kzivo'gbamo and the temple-caves of Nkan'gbamo below. This underground city dominates Nkarlen culture and is the seat of all the Jikzeks; the leaders of the Ranos. 
 
 Other settlements/cities include: Lakzekond at the eastern end of the shattered mountains
+
+### Nisardel, City of Fish
+
+Lyva: /u/smcadam
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmaxay5/)      
+
+On the northern cape of the Echoing Jungle, the town of Nisardel grew on ocean fishing and trade with the islands, the land of the Jungle cut down and stripped away to become farmland, the great timbers used for solid houses and great ships.
+
+   
+
+  
+### Redgash
+
+/u/Plintstorm 
+
+[Turn 6](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/)
+
+Redgash is located near one of the rivers in the Savage jungle.  
+Worshiping Azrakal and Sarash, they they call them the red god and the black lady. (But they think the black lady is acctualy the War goddess Mair.
+
 
 ### Sanctuary
 
@@ -728,6 +804,14 @@ This faction of Nkarlen is the most widespread, having fallen under the influenc
 Their center of power is Sralenkloon on the northern tip of Gbigolind.
 
 Other settlements/cities include: Googebi in the Savage Jungles south of Kzivo'gbamo, Mukzek on the edge of the inland sea halfway between Nkan'gbamo and Amalah
+
+### Vazari Clans
+
+/u/CruelObsidian
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm9tx4q?utm_source=share&utm_medium=web2x)
+
+The tribes of Humans that call the Tadaloan Islands Chain home, worship Malaphet as their patron. They employ the mindburn spell to deal with high level criminals while controlling the Unliving through a Mental Domination inherent to all Vasari that operates best on those with little intelligence
 
 ## Organizations
 
@@ -832,6 +916,15 @@ Shata was a female yashool, Master of the Society of the Black Wing, prophet of 
 
 ## Artifacts
 
+### Blade of the First King
+
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/fltg5sc/)
+
+**Description:** Blade of the first King of the world. Can only be held by people with Kings blood or close to getting Kings blood.  
+A unusually powerful sword.
+
 ### The Blood Dagger
 
 **Creator**: Azrakal (/u/Plintstorm ) 
@@ -856,63 +949,6 @@ The Retaliator was sword of divine creation that Gon brought along with him from
 ## Divine Law
 
 ## Magics
-
-### Arrow Spells
-
-/u/Horatius-Cocles 
-
-[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmbyy5j/)
-
-- Armor Piercer: An arrow with increased piercing power versus armor or big beasts.
-
-- Delayed Arrow: Freezes in the air when shot and only takes flight after a delay, allowing the archer to hide or change positions.
-
-- Splitting Arrow: Splits into 3 in flight and hits target thrice.
-
-### Blood Empowerment
-By killing a creature, be it man or beast, one can then drink it's blood in a magical ritual to gain it's power.  
-While only a small amount of power is gained, it is permanent and can be repeated.
-
-### Blood Storage
-
-Description: Magic used to store magics in blood. Stores magic for 1 year and 1 day.
-
-### Magic Arrows
-
-/u/Horatius-Cocles 
-
-[Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnbg3y/)
-
-Magical Arrows who can absorb magical energies upon killing something, so it does not explode. Magical energy is stored in the arrow until discharged. This is a secret magic and does not become general knowledge. Can only be learned by bargaining with Rictus or buying it directly for 3 acts + 2 acts for secrecy.
-
-### The Mindburn spell
-
-As the Vazari experimented with their mental ability to dominate others, they found that, if magic was used to amplify their attempt at domination, it could not only dominate a person, but burn out any personal memories that the target possessed while leaving the majority of what made them useful, such as the knowledge of how to craft things or what type of foods where toxic, while leaving them unable to remember who even their closest friends or family.
-
-The Vazari turned to using this spell as a way to punish their more heinous criminals whose skills were valuable or rare, enough so that consigning them to unliving status outweighed the benefit of imposing more lethal punishments. In effect this spell could only be used legally after a fair trial was conducted by the judging of their peers and after the ritual was completed, the criminal was treated as a reborn person, given a new name and adopted or auctioned off into a family or other tribe that desired their skills so that the victims of the crimes would not have to deal with seeing the perpetrator day in and day out.
-### Petrification Magic
-
-/u/WHOSGOTYOURSKINNOW
-
-[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmb4yly/)
-
-This required the caster to take in the magic from an unliving creature who had been put down and redirect that energy to their target.
-
-Petrification magic was not instant and could only be used from a short distance, but the living/unliving would slowly turn to stone from the point that the magic was directed to, until they had been rendered into nothing more than a statue. This spell does not permit this to be undone. To prevent becoming a statue, one must rid themselves of all of the parts that have started to turn to stone.
-
-### The Sorcerer's Runes
-
-/u/Gwydion-Drys 
-
-[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm8mb06/)
-
-Runic markings taught to mortals by the Sorcerer. If fed with magical energy by killing something of by a store the runes can be charged and used to their magical purposes until depleted. At which point they need to be recharged again.
-
-- Rune Pyxos: Putting it on an object makes it more durable for a while. While a living thing can carry heavier loads.
-
-- Rune Akribeia: Putting it on an object this enchantment makes a tool or weapon exert more force when used. While it heightens someones precision with a tool or weapon if put on a living thing. 
-
-- Rune Fora: Putting it on a living thing this spell boosts its stamina. For missiles and vehicles it boosts their speed.
 
 ## Metaphysics
 
@@ -981,7 +1017,11 @@ The Unliving yearn to sate all their animal desires including food, sleep and se
 
 ### Power of Blood
 
-Description: Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnix1j/)
+
+**Description:** Power rest in blood, more powerful people have more powerful blood. Heroes, Kings and other figures of power and authority have power in their blood, making them physically more powerful.  
 Power is just not strength, but also a general meaning of power. Kings blood makes for good king in several aspect.  
 Blood can also be applied to people and objects to increase their power temporarily.
 
@@ -1092,6 +1132,58 @@ These powers can be revoked by an Iron Inquisitor or withdrawn by the miracle it
 
 The strain put on Lawbringers is the same or even greater as that put on Judges, when they bend reality.
 
+### Vampirism
+
+#### Miracle
+
+People chosen by Azrakal can be chosen to become vampires, only way to attract Azrakal's attention is by sacrificing and spilling huge amounts of blood.  
+All vampires belongs to a bloodline, each bloodline can have different blessings, the base blessing is as follow:
+
+Base Blessings:  
+**Power**: Even a newly turned Vampire is far stronger than a normal mortal  
+**Blood Healing**: A vampire, unless burned to ash, will regenerate eventually (bigger injury, more time needed, complete body reconstruction is about a decade).  
+**Blood sense**: Able to detect beings with blood all around themselves.  
+**Unlife**: A vampire is technically, a unliving, having died but their soul still remains in their body. This means they won't die of old age (but they are no longer mortals, so no worship can benefit from them).  
+**Blood kin**: Can pass on the Vampire blessing to another person, this rituals demands magical blood. The new kin lose 10% of the total vampire power. Only a vampire turned by Azrakal himself is at 100% power.  
+(first generation is 100%, second 90%, third 80% etc. etc.)
+
+[-22 acts: Base Vampire Bloodline  
+higher physical prowress" (3), "slowly regenerate injuries naturally" (3), "survive unless destroyed thoroughly" (5),  "sense blood" (2), "don't age" (6 because regeneration+survival are also there), "don't need food but grow mad if hungry" (3)]
+
+It comes with weakness however:  
+All vampires feels the thirst for mortal blood, animal blood does not work.  
+Blood healing also consumes blood when healing, making the vampire more thirsty as he heals. The Vampire however, being a mockery of life and death, won't starve to death, but will feel the thirst stronger and stronger to the point of madness.  
+A vampire waking up after a decade of healing his destroyed body will pretty much go in to a feral state to find blood to drink.
+
+The First Vampire Bloodline (Urak bloodline):  
+**Flight**: They possess wings they can use to fly with, wings can be hidden away.  
+**Blood Attunement**: Blood Magic works stronger for them  
+
+[-6 acts: Urak's Bloodline  
+(3 for flight, 3 for blood magic boost)]
+
+#### Other Bloodlines
+
+Other players may create other bloodlines, they cost their basic blessing costs (see basic/Uraks bloodline above for example)  
+The base cost have been payed by me, you only need to pay the cost for the spesific blessing on the new bloodline.  
+Maybe we throw in a 2 acts cost if you want to turn someone behind my back (i.e, without a massive pile of blood sacrifices)
+
+#### Weakness
+
+Now, you might ask: What about weaknesses? Being burned to ash does not sound like a weakness, sounds like a strength to survive anything but that.  
+Well, yes.  
+
+I will allow other players to introduce weaknesses to the Vampires, your god might see this blight on existence and go "no, I rather not have mortals be dominated by these super-abominations".  
+
+**Small weakness**: Things that inconvenience the vampire. (ex: Vampire can't cross a line of salt)  (2 acts)  
+**Medium weakness**: Things that can injure a vampire or force it to go away, but won't kill it (ex: Holy Symbol + prayer with faith repel and cause pain to vampires) (3 acts)  
+**Strong weakness**: Injures a vampire greatly, can be deadly in large quantities (ex: Holy Water burns vampires, the burns will take a decades to heal up) (4 acts)  
+**Deadly Weakness**: Can permanently kill a vampire (fairly) easily (ex: wooden stake to the heart) (5 acts)
+
+Let's begin with 1 of each weakness and 2 small weakness? (PS: Prices are subjected to change as per GM decisions (sure, maybe I should have run it pass him first to get the OK signal for all things, but meh, that is for boring people, I also typed all this out on reddit before that idea crossed my mind.)
+
+Also!
+
 ### Waidmänner
 
 /u/Horatius-Cocles 
@@ -1151,6 +1243,117 @@ Upon significant events in the material world, like the founding of an important
 **Endless Woods**: A woodland haunted by those deemed unworthy to enter Oneiros. It is overrun by the nightmares of the Damned, who are forced to prey on each other for eternity. The topography and geography is permanently shifting and the Woods are shrouded in near complete darkness.
 
 **Rift Woods**: Patches of crystalline tree like structures that grow in wooded areas on land or coral reefs under water. They can be found in the material plane and the Rift. These patches of crystalline woods mark the entrances/exits of the Rift.
+## SecretMagics
+
+### Arrow Spells
+
+/u/Horatius-Cocles 
+
+[Turn 5](https://old.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmbyy5j/)
+
+- Armor Piercer: An arrow with increased piercing power versus armor or big beasts.
+
+- Delayed Arrow: Freezes in the air when shot and only takes flight after a delay, allowing the archer to hide or change positions.
+
+- Splitting Arrow: Splits into 3 in flight and hits target thrice.
+
+
+### Blood Empowerment
+
+/u/Plintstorm 
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm7wgzs/)
+
+**Description:** By killing a creature, be it man or beast, one can then drink it's blood in a magical ritual to gain it's power.  
+While only a small amount of it's total power is gained, it is permanent and can be repeated.
+
+### Blood Storage
+
+/u/Plintstorm 
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flxvou2/)
+
+**Description:** Magic used to store magics in blood. Stores magic for 1 year and 1 day.
+
+### Magic Arrows
+
+/u/Horatius-Cocles 
+
+[Turn 2](https://old.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnbg3y/)
+
+Magical Arrows who can absorb magical energies upon killing something, so it does not explode. Magical energy is stored in the arrow until discharged. This is a secret magic and does not become general knowledge. Can only be learned by bargaining with Rictus or buying it directly for 3 acts + 2 acts for secrecy.
+
+### The Mindburn spell
+
+As the Vazari experimented with their mental ability to dominate others, they found that, if magic was used to amplify their attempt at domination, it could not only dominate a person, but burn out any personal memories that the target possessed while leaving the majority of what made them useful, such as the knowledge of how to craft things or what type of foods where toxic, while leaving them unable to remember who even their closest friends or family.
+
+The Vazari turned to using this spell as a way to punish their more heinous criminals whose skills were valuable or rare, enough so that consigning them to unliving status outweighed the benefit of imposing more lethal punishments. In effect this spell could only be used legally after a fair trial was conducted by the judging of their peers and after the ritual was completed, the criminal was treated as a reborn person, given a new name and adopted or auctioned off into a family or other tribe that desired their skills so that the victims of the crimes would not have to deal with seeing the perpetrator day in and day out.
+### Petrification Magic
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fmb4yly/)
+
+This required the caster to take in the magic from an unliving creature who had been put down and redirect that energy to their target.
+
+Petrification magic was not instant and could only be used from a short distance, but the living/unliving would slowly turn to stone from the point that the magic was directed to, until they had been rendered into nothing more than a statue. This spell does not permit this to be undone. To prevent becoming a statue, one must rid themselves of all of the parts that have started to turn to stone.
+
+### The Sorcerer's Runes
+
+/u/Gwydion-Drys 
+
+[Turn 5](https://www.reddit.com/r/GodhoodWB/comments/ftlhb9/endless_pantheon_turn_5_macro/fm8mb06/)
+
+Runic markings taught to mortals by the Sorcerer. If fed with magical energy by killing something of by a store the runes can be charged and used to their magical purposes until depleted. At which point they need to be recharged again.
+
+- Rune Pyxos: Putting it on an object makes it more durable for a while. While a living thing can carry heavier loads.
+
+- Rune Akribeia: Putting it on an object this enchantment makes a tool or weapon exert more force when used. While it heightens someones precision with a tool or weapon if put on a living thing. 
+
+- Rune Fora: Putting it on a living thing this spell boosts its stamina. For missiles and vehicles it boosts their speed.
+
+#### Secret Runes
+
+##### Necromancy
+
+/u/Gwydion-Drys
+
+[Turn 7](https://old.reddit.com/r/GodhoodWB/comments/fwp5rk/endless_pantheon_turn_7/fmvpcz7/)
+
+The art of communing with the spirits of the dead and employ them for the mages ends and means, either by traveling to the Rift and dealing with them directly, or by summoning them into the prime material plane by use of magical runes and rituals. There are two ways to cast any spell of necromancy.
+
+- Katabasis
+
+The act of traveling the Rift and seeking out the dead is fraught with peril, however necromancers undertaking this risk will find the dead much more willing to deal with them and following their commands. The spirits of the dead the necromancer wishes to employ then accompany the necromancer to the prime material plane. To allow them to do such their way needs to be paid by magical energies. In essence the mage visits the ghost and accompanies him to do his magical task.
+
+- Summoning
+
+Under the use of runes taught by the Sorcerer and consumption of magical energies a ghost can be raised straight from the Rift. However planar travel tends to muddle the mind, even of the dead, so any answers ghosts summoned this way are to be taken with a grain of salt and they may object to be torn out of the afterlife and spells they are employed for may be less potent.
+
+###### Spells
+
+The use of necromancy serves three primary purposes: the acquisition of knowledge, the conjuration of illusions and the manipulation of the will of the living.
+
+- Knowledge: The dead can trade knowledge after death or share knowledge they possessed in life. However after a year and a day in the Rift their minds start to forget and the knowledge they can provide dwindles. (3 acts for spells + 2 for secret)
+
+- Illusion:   Depending on if the necromancer wants to show people good or bad events in an illusion, a soul is summoned either from the Sleeping City or the Endless Woods. The blessed souls from Oneiros, the Sleeping City can show others the dreams dreamt by the dead, resulting in an enjoyable illusion. Damned souls from the Endless Woods share their nightmares and horrors with people. (3 acts for spells + 2 for secret)
+
+- Manipulation of Will: A necromancer can not outright mind control a person. However by summoning the ghosts of the Rift a sort of post-hypnotic suggestion can be laid on people, by ghosts whispering into people's ears and minds ideas, feelings or courses of action of the necromancer's will. (3 acts for spells + 2 for secret)
+
+##### Necrurgy
+
+/u/Gwydion-Drys
+
+[Turn 6](https://old.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmhla43/)
+
+Dead and dying people and animals often carry skills or training that would be wasted with the dead. A mage capable of necrurgy can remove parts of the soul from a recently dead person or animal and implant them in a living person or animal. 
+
+In people memories of the deceased or dying often will be transported alongside the skill or ability the mage wants to transplant. 
+
+In animals, character traits are often transferred. So the ferocity of one animal might be transferred onto another.
+
+This is the drawback of this magic if it is misused, employed too often on the same target or performed badly, Necrurgy can lead to mental illness, most often multiple personality disorder. (5 acts for magic + 2 for secret)
+
 # The World
 
 ## Celestial Bodies
@@ -1174,6 +1377,14 @@ The boy was not perturbed. He knew he could not possibly reach the sky with an a
 [Turn 4](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm5s8wo/)
 
 To commemorate the founding of Epoidos the mages of the city performed an ancient ritual, given to them by the Sorcerer. And so there in the sky a constellation in the form of two gates appeared symbolizing the White Gates of Epoidos.
+
+### The Red Star
+
+/u/plintstorm
+
+[Turn 4](https://www.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm45syc/)
+
+A bright red start to the south.
 
 ### Segil'reld, The Great Bird
 
@@ -1263,6 +1474,10 @@ A sixteen mile high mountain in the form of a Nkarlen down on one knee with his 
 
 ### Blood Hunter
 
+/u/plintstorm
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flx87zi/)
+
 Description: Highly dangerous, intelligent, cruel, strong and bloodthirsty creature. Lives in the Savage Jungle.
 
 ### Hoarding Crab (Nkelims'kzelir)
@@ -1309,6 +1524,18 @@ The Trees themselves look like described above only carved from blue or violet c
 
 The fruit of the glows and be fashioned into a lamp, used by the Rift Keepers to guide the souls of the dead along to the afterlife.
 
+### Sea Pups
+
+/u/StarOfTheSouth
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flm1zda?utm_source=share&utm_medium=web2x)
+
+They were small things, the adults only the size of a small wolf, and covered with a thin coating of fur. A sleek design, reminiscent of sharks, better for swimming in the water. Gills, so as to breath under the sea, a proper set of lungs, so as to breath the air while on land.
+
+The tail was long, turning into a proper tail-fin, and the paws had to be changed a bit. Wider gaps between the toes, with some webbing between them to further assist in the water. Sharp claws, not unlike a cat, and sharper teeth would let it hunt in the water.
+
+Smaller fins were placed on forelegs and hind legs, just above the elbow/knee joint completed the look.
+
 ### Vanilin
 
 Created by Lyva, [Turn 3](https://old.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fm061ji/)     
@@ -1335,6 +1562,10 @@ A crystalline material most useful in weapons and armor, but also usable in cons
 Created at the dawn of time by Rictus, Azrakal, Prismari and Kain. It holds the Hunting Grounds of Rictus, the Blood Planes of Azrakal and an statue of a colossal man by Prismari and many other places.
 
 #### Blood Plains
+
+/u/Plintstorm 
+
+[Turn 2](https://www.reddit.com/r/GodhoodWB/comments/fpv868/endless_pantheon_turn_2/flnix1j/)
 
 Description: [Explained here](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/fluhzvi/), a plain that is colored red.  
 Plenty of deer to hunt and some wild horses. A drug grows there.  
@@ -1434,6 +1665,10 @@ The foot is packed with dense forests and its typical flora and fauna.
 An inland sea formed during the creation of the second continent.
 
 #### The Savage Jungle
+
+/u/Plintstorm 
+
+[Turn 3](https://www.reddit.com/r/GodhoodWB/comments/fr5ib1/endless_pantheon_turn_3/flx87zi/)
 
 Description: A jungle filled with danger, large reptilian like creatures.  
 Food: Meat, Fruit, Crop  
