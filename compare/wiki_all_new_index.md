@@ -105,10 +105,6 @@
 ### Theurgy - Cantrips
 ## Miracles
 ### The Iron Law
-### Vampirism
-#### Miracle
-#### Other Bloodlines
-#### Weakness
 ### Waidmänner
 ## Planes
 ### The Rift
