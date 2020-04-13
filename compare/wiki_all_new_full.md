@@ -4,7 +4,25 @@
 
 ## Avatars
 
+### Avatar of Rictus
+
+/u/Horatius-Cocles
+
+[Turn 6](https://old.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmkgz35/)
+
+Looks like the normal human hunter form of Rictus.
+
 ## Demigods
+
+### Ferus
+
+/u/Horatius-Cocles
+
+[Turn 8](https://old.reddit.com/r/GodhoodWB/comments/fylavg/endless_pantheon_turn_8/fn70yyk/)
+
+Once a mortal descendant of Rictus. He was turned into a demigod by Rictus and is his one constant companion. 
+
+Ferus is the **demigod of memory** and bestows the miracle of memory on those he deems fit to be free mages. Who in turn can pass on this gift.
 
 ## Gods
 
@@ -500,13 +518,13 @@ Description: The Thyvians are the descendants of the Turmoiled tribe, down in th
 
 **Creator**: The Sorcerer, Lyva
 
-**Amended**: -
+**Amended**: [Turn 8](https://old.reddit.com/r/GodhoodWB/comments/fylavg/endless_pantheon_turn_8/fn3vj3d/)
 
 **Description**: Apokryph look a lot like slightly taller than average humans. They have gray skin and night-blue eyes. Their hair colors range from white and gray over brown to black. The Apokryph are born with dark runic markings on their bodies. These markings change with the stories of their lives. 
 
 The Sorcerer and his clergy can read these markings to determine the caste an Apokryph belongs to. As these markings change the stations and powers of an Apokryph, his or her station change in life and Apokryph-society. They also have horns to commemorate the hand of Lyva in their creation.
 
-In their veins flows a great amount of magic extending their natural life spans up to 300 years. Additionally, they have innate magical powers making them more adept at the jobs their caste is tasked with, as Apokryph society is intended by their original creator to be a caste structure. Currently, the Apokryph can however not access their life spans and innate magic as they are not yet accustomed to life in this new world.
+In their veins flows a great amount of magic extending their natural life spans up to 250 years. Additionally, they have innate magical powers making them more adept at the jobs their caste is tasked with, as Apokryph society is intended by their original creator to be a caste structure. ~~Currently, the Apokryph can however not access their life spans and innate magic as they are not yet accustomed to life in this new world~~. They have acclimatized with the Sorcerer's divine aid.
 
 ### Humans
 
@@ -910,6 +928,14 @@ Died turn 4 (technically speaking)
 
 Shata was a female yashool, Master of the Society of the Black Wing, prophet of Yashqal, and first queen of Wooxti-Kwashotl. She greatly advanced the development of bronze weaponry and camouflage, which were employed to fight the Dire Beasts of the great forest. She is founder of the Shatic dynasty, a Black Wing oriented, species-neutral, gender neutral theocratic dynastic line. 
 
+### Yrdin
+
+/u/Gwydion-Drys 
+
+[Turn 6](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmhla43/)
+
+Apokryph of Epoidos, wanted to defy the caste norms and be chosen for a different caste, went to sactuary and became an Iron Judge, appointed to the caste of philosophers instead of citizens. Honored as hero by the people. Left behind his Iron Codex as hero artifact. Death Turn 8
+
 ## Technology
 
 # The Supernatural
@@ -932,6 +958,28 @@ A unusually powerful sword.
 **Created**: [Turn 1](https://www.reddit.com/r/GodhoodWB/comments/foo57w/endless_pantheon_turn_1/flgrobm/)
 
 **Description**: A dagger forged with the scales of Lyva and the Blood of Azrakal. The Dagger absorbs blood, including that inside the people it stab.
+
+### The Crow
+
+/u/Senelaria
+
+[Turn 8](https://old.reddit.com/r/GodhoodWB/comments/fylavg/endless_pantheon_turn_8/fn9orgy/)
+
+The Crow is an artifact, that looks like a child even to gods. It was made to serve as protector and play companion and caretaker for Yana, the daughter of Lyva. 
+
+Crow in its normal state is like a very dim-witted young child in intellect and appearance. But if Yana is threatened the monster inside comes out. 
+
+Inside Crow is an old rusty metal scarecrow with eyes of fire who will attack anything with malicious intent towards Yana. It has iron teeth and claws and is supernaturally fast, strong and can blend in with the surroundings, if not directly looked at.
+
+The Crow is also fireproof.
+
+### Iron Codex of Yrdin
+
+/u/Gwydion-Drys 
+
+[Turn 8](https://old.reddit.com/r/GodhoodWB/comments/fylavg/endless_pantheon_turn_8/fn3vj3d/)
+
+A Codex of the Iron Law once owned by Yrdin the hero. Allows to summon his slumbering heroic spirit and imparting a worthy souls with wisdom of the powers of an Iron Judge. (2 acts)
 
 ### The Retaliator
 
@@ -1089,6 +1137,22 @@ God | Cantrip
 
 ## Miracles
 
+### The Free Mages
+
+/u/Horatius-Cocles
+
+[Turn 8](https://old.reddit.com/r/GodhoodWB/comments/fylavg/endless_pantheon_turn_8/fn70yyk/)
+
+By training their minds in special way the people known as Free Mages have special capabilities, by giving them enhanced mastery over their memories.
+
+What this means is, if they see or experience a specific move set, like a fighting style, carpentry or free climbing they can replicate these moves from memory. As memories are imperfect and often colored by the individuals that have them, this process is not perfect. Only allowing for weaker versions of whatever they copy from their memories. It doesn't make them masters at any particular skill they replicate, but allows them to be skilled at many things.
+
+This even extends to magic. They can summon magic spells they remember at will into the real world. Thereby replicating said magic. As stated above memories of mortals aren't perfect, so the magic produced is often times less powerful than its original version. And the more complex the magic the more unlikely it is a free mage will be able to replicate it to a more than mediocore success.
+
+Since Free Mages only copy the memorized effect of a spell, their castings don't share the same limitations as those of the original magic like set metaphysics or rituals required. The caster is limited only by the number of spells he has witnessed and thereby at his command and his own endurance.
+
+The demigod Ferus teaches new free mages, who can pass on the knowledge of how to become a free mage to an apprentice.
+
 ### The Iron Law
 
 /u/Horatius-Cocles 
@@ -1132,6 +1196,28 @@ These powers can be revoked by an Iron Inquisitor or withdrawn by the miracle it
 
 The strain put on Lawbringers is the same or even greater as that put on Judges, when they bend reality.
 
+### Vampirism
+
+Created: /u/Plintstorm  
+Main Creation: [Turn 6](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmha126/)
+
+**Description:** Vampires are people who have received the great gift, including immortality, great power, regeneration etc. etc.  
+Vampires are no longer mortals and live forever until killed, and have some useful abilities, such as sensing blood near them.  
+Vampires feeds on blood, even if they no longer die of thirst or hunger, they will still feel it, hence a vampire can go mad if not feeding for long enough.  
+Current way of killing a vampire is complete disintegration of their bodies, leaving but a tiny part behind will allow them to fully regenerate.
+
+All vampires belongs to a bloodline, giving them even more abilities.  
+Such as:  
+[**Urak's Bloodline** - Gives power of flight and more powerful blood magic.](https://www.reddit.com/r/GodhoodWB/comments/fwp5rk/endless_pantheon_turn_7/fmyj4bm/)  
+[**Dealego bloodline** - Contact with their blood cause injuries that cause bloodletting to appear on them and their blood have a scent that makes people feral.](https://www.reddit.com/r/GodhoodWB/comments/fwp5rk/endless_pantheon_turn_7/fmyj4bm/)  
+[**Sabin Bloodline** - Addictive blood and empathic senses.](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmirx1z/)  
+
+Vampires have weaknesses created by other gods:
+
+[**Medium Weakness:** Vampires are repelled by a Iron Codex](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmkgz35/)  
+[**Strong Weakness:** Vampires need permission from entering properties](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmi04r5/)  
+
+
 ### Waidmänner
 
 /u/Horatius-Cocles 
@@ -1151,47 +1237,6 @@ Warriors serving as the armed wing of Order of Iron Judges to enforce the law an
  So an experienced Waidmann, who has gone though the ritual several times, will have a number of powers like night vision, or the enhanced senses and strength of an animal, or things as straightforward as retractable claws. Any new cycle however will be more difficult than the last.
 
 ## Planes
-
-### The Rift
-
-**Creator**: The Sorcerer
-
-**Amended**: -
-
-**Description**: The Sorcerer's very own plane between worlds. For the souls of the dead it functions as an afterlife for the Apokryph it is their home dimension. 
-
-The Rift is a volatile, shifting and twisted mirror version of the material world. It grows and changes as the material plane does. The Rift is a place born of Magic and Death. The **Endless Woods** make up the majority of the plane. It is steeped in eternal darkness. The terrain is unreliable and distances change at will. Where an hour ago a river was flowing now a mountain could be standing.
-
-At the center of the plane, suspended in mid air instead of a sun hovers a white city, **Oneiros**, the city of sleep.
-
-Three kinds of dead souls are found in the Rift:
-
-- The first are souls with no other afterlife to go to.
-
-- The second are the faithful of the Sorcerer.
-
-- The third are the souls of the dead Apokryph, waiting for reincarnation.
-
-The first two kinds are judged and either allowed entrance to Oneiros, where they can sleep and dream away the time. 
-
-If they are found unworthy they are tossed into the Endless Woods where they are forced to prey on each for eternity, while their worst nightmares take shape and torment all of them equally.
-
-The third kind live among their living kin, but are unable to leave the Rift.
-
-Beyond that the Rift connects to all Rift Woods of the material world. Mortals, who know how and dare to enter, will be able to go to this plane through the Rift Woods. Then they can wander the Rift until they reach a place connecting to a different patch of Rift Wood and return through there to the material plane or they find the hidden way to Oneiros, where they can try to reach their dead loved ones.
-
-While people not privy to the secrets of mastering the Rift Woods and the Rift will be in danger of stumbling blind into this plane and never come back. Because they run afoul of the dangers of the Endless Woods, wandering through the Rift until they die. Or they stumble back into the mortal world in a random patch of Rift Wood, possibly on the opposite side of the world, driven mad by the horrors of the Endless Woods. Creatures and plants can make their way around the world in this way as well and wander into the Rift, where they become inhabitants of the Rift itself. 
-
-Upon significant events in the material world, like the founding of an important city, a battle or the creation of an especially holy sight etc., a similar location will come into existence in a corresponding place in the Rift. Negative events like battles or especially grisly murders spawn a place haunted by the deepest and darkest horrors of the Rift. While positive events like an especially heroic act or similar things will create one of the rare sanctuaries of the Rift. Here mortals and other beings wandering the Rift can find a safe haven for a short while. As with all places in the Rift, these suffer from volatile topography and shifting surroundings as well. Unless guided by someone in the know it is highly unlikely for people to come out of the Rift in one piece.
-
-#### Locations in the Rift
-
-**Oneiros, the City of Sleep**: At the center of the plane, suspended in mid air, hovers a white city, Oneiros, the city of sleep. Here those who have earned a reward, dream away the time. It is also the primary home of the Apokryph in the Rift.
-
-**Endless Woods**: A woodland haunted by those deemed unworthy to enter Oneiros. It is overrun by the nightmares of the Damned, who are forced to prey on each other for eternity. The topography and geography is permanently shifting and the Woods are shrouded in near complete darkness.
-
-**Rift Woods**: Patches of crystalline tree like structures that grow in wooded areas on land or coral reefs under water. They can be found in the material plane and the Rift. These patches of crystalline woods mark the entrances/exits of the Rift.
-## SecretMagics
 
 ### Arrow Spells
 
@@ -1246,6 +1291,46 @@ This required the caster to take in the magic from an unliving creature who had 
 
 Petrification magic was not instant and could only be used from a short distance, but the living/unliving would slowly turn to stone from the point that the magic was directed to, until they had been rendered into nothing more than a statue. This spell does not permit this to be undone. To prevent becoming a statue, one must rid themselves of all of the parts that have started to turn to stone.
 
+### The Rift
+
+**Creator**: The Sorcerer
+
+**Amended**: -
+
+**Description**: The Sorcerer's very own plane between worlds. For the souls of the dead it functions as an afterlife for the Apokryph it is their home dimension. 
+
+The Rift is a volatile, shifting and twisted mirror version of the material world. It grows and changes as the material plane does. The Rift is a place born of Magic and Death. The **Endless Woods** make up the majority of the plane. It is steeped in eternal darkness. The terrain is unreliable and distances change at will. Where an hour ago a river was flowing now a mountain could be standing.
+
+At the center of the plane, suspended in mid air instead of a sun hovers a white city, **Oneiros**, the city of sleep.
+
+Three kinds of dead souls are found in the Rift:
+
+- The first are souls with no other afterlife to go to.
+
+- The second are the faithful of the Sorcerer.
+
+- The third are the souls of the dead Apokryph, waiting for reincarnation.
+
+The first two kinds are judged and either allowed entrance to Oneiros, where they can sleep and dream away the time. 
+
+If they are found unworthy they are tossed into the Endless Woods where they are forced to prey on each for eternity, while their worst nightmares take shape and torment all of them equally.
+
+The third kind live among their living kin, but are unable to leave the Rift.
+
+Beyond that the Rift connects to all Rift Woods of the material world. Mortals, who know how and dare to enter, will be able to go to this plane through the Rift Woods. Then they can wander the Rift until they reach a place connecting to a different patch of Rift Wood and return through there to the material plane or they find the hidden way to Oneiros, where they can try to reach their dead loved ones.
+
+While people not privy to the secrets of mastering the Rift Woods and the Rift will be in danger of stumbling blind into this plane and never come back. Because they run afoul of the dangers of the Endless Woods, wandering through the Rift until they die. Or they stumble back into the mortal world in a random patch of Rift Wood, possibly on the opposite side of the world, driven mad by the horrors of the Endless Woods. Creatures and plants can make their way around the world in this way as well and wander into the Rift, where they become inhabitants of the Rift itself. 
+
+Upon significant events in the material world, like the founding of an important city, a battle or the creation of an especially holy sight etc., a similar location will come into existence in a corresponding place in the Rift. Negative events like battles or especially grisly murders spawn a place haunted by the deepest and darkest horrors of the Rift. While positive events like an especially heroic act or similar things will create one of the rare sanctuaries of the Rift. Here mortals and other beings wandering the Rift can find a safe haven for a short while. As with all places in the Rift, these suffer from volatile topography and shifting surroundings as well. Unless guided by someone in the know it is highly unlikely for people to come out of the Rift in one piece.
+
+#### Locations in the Rift
+
+**Oneiros, the City of Sleep**: At the center of the plane, suspended in mid air, hovers a white city, Oneiros, the city of sleep. Here those who have earned a reward, dream away the time. It is also the primary home of the Apokryph in the Rift.
+
+**Endless Woods**: A woodland haunted by those deemed unworthy to enter Oneiros. It is overrun by the nightmares of the Damned, who are forced to prey on each other for eternity. The topography and geography is permanently shifting and the Woods are shrouded in near complete darkness.
+
+**Rift Woods**: Patches of crystalline tree like structures that grow in wooded areas on land or coral reefs under water. They can be found in the material plane and the Rift. These patches of crystalline woods mark the entrances/exits of the Rift.
+
 ### The Sorcerer's Runes
 
 /u/Gwydion-Drys 
@@ -1278,10 +1363,6 @@ The act of traveling the Rift and seeking out the dead is fraught with peril, ho
 
 Under the use of runes taught by the Sorcerer and consumption of magical energies a ghost can be raised straight from the Rift. However planar travel tends to muddle the mind, even of the dead, so any answers ghosts summoned this way are to be taken with a grain of salt and they may object to be torn out of the afterlife and spells they are employed for may be less potent.
 
-###### Katabasis
-
-The act of traveling the Rift and seeking out the dead is fraught with peril, however necromancers undertaking this risk will find the dead much more willing to deal with them and following their commands. The spirits of the dead the necromancer wishes to employ then accompany the necromancer to the prime material plane. To allow them to do such their way needs to be paid by magical energies. In essence the mage visits the ghost and accompanies him to do his magical task.
-
 ###### Purposes
 
 The use of necromancy serves three primary purposes: the acquisition of knowledge, the conjuration of illusions and the manipulation of the will of the living.
@@ -1301,10 +1382,6 @@ The use of necromancy serves three primary purposes: the acquisition of knowledg
 
 - Manipulation of Will: A necromancer can not outright mind control a person. However by summoning the ghosts of the Rift a sort of post-hypnotic suggestion can be laid on people, by ghosts whispering into people's ears and minds ideas, feelings or courses of action of the necromancer's will. (3 acts for spells + 2 for secret)
 
-###### Summoning
-
-Under the use of runes taught by the Sorcerer and consumption of magical energies a ghost can be raised straight from the Rift. However planar travel tends to muddle the mind, even of the dead, so any answers ghosts summoned this way are to be taken with a grain of salt and they may object to be torn out of the afterlife and spells they are employed for may be less potent.
-
 ##### Necrurgy
 
 /u/Gwydion-Drys
@@ -1318,7 +1395,6 @@ In people memories of the deceased or dying often will be transported alongside 
 In animals, character traits are often transferred. So the ferocity of one animal might be transferred onto another.
 
 This is the drawback of this magic if it is misused, employed too often on the same target or performed badly, Necrurgy can lead to mental illness, most often multiple personality disorder. (5 acts for magic + 2 for secret)
-
 # The World
 
 ## Celestial Bodies
@@ -1342,6 +1418,14 @@ The boy was not perturbed. He knew he could not possibly reach the sky with an a
 [Turn 4](https://old.reddit.com/r/GodhoodWB/comments/fsee67/endless_pantheon_turn_4/fm5s8wo/)
 
 To commemorate the founding of Epoidos the mages of the city performed an ancient ritual, given to them by the Sorcerer. And so there in the sky a constellation in the form of two gates appeared symbolizing the White Gates of Epoidos.
+
+### Gloon'srikzo, The Nephite Moon
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 7](https://www.reddit.com/r/GodhoodWB/comments/fwp5rk/endless_pantheon_turn_7/fmxafvm/)
+
+A green moon made entirely out of Nephite. Created by Gon unconsciously when he needed to heal himself after a fight with Lyva resulted in an atomic propelling him off the surface of the sun. 
 
 ### The Red Star
 
@@ -1516,6 +1600,17 @@ Description: A glowing metal that is quite easy to work, and constantly sheds wa
 ### Malaphine
 
 A crystalline material most useful in weapons and armor, but also usable in construction. It is very balanced in strength and give.
+
+### Oxeblas Gems
+
+/u/WHOSGOTYOURSKINNOW
+
+[Turn 6](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmi50gw/)
+
+These bright red and opaque gems gathered the essence of animation from when unliving were put down in the near vicinity of them. This essence was slowly concentrated as more and more unliving were eliminated in close proximity. As they took in more and more essence they would slowly turn black and become more and more brittle.
+
+When one of these crystals was broken that animating force would be released all at once and convert into magic energy like normal. The size of these crystals determines their capacity to contain this animating force; a totally black crystal cannot hold any more.
+
 ## Regions
 
 ### The First Continent, Primus

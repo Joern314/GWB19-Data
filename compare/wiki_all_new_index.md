@@ -1,7 +1,9 @@
  wiki
 # Divines
 ## Avatars
+### Avatar of Rictus
 ## Demigods
+### Ferus
 ## Gods
 ### Azrakal
 ### The Forgotten
@@ -85,11 +87,14 @@
 ### Patchwork
 ### Roilenkar, Beardillo Rider and Goblin Hero
 ### Shata
+### Yrdin
 ## Technology
 # The Supernatural
 ## Artifacts
 ### Blade of the First King
 ### The Blood Dagger
+### The Crow
+### Iron Codex of Yrdin
 ### The Retaliator
 ## Divine Law
 ## Magics
@@ -104,30 +109,30 @@
 ### Tsukumogami, or Familial Bonding
 ### Theurgy - Cantrips
 ## Miracles
+### The Free Mages
 ### The Iron Law
+### Vampirism
 ### Waidmänner
 ## Planes
-### The Rift
-#### Locations in the Rift
-## SecretMagics
 ### Arrow Spells
 ### Blood Empowerment
 ### Blood Storage
 ### Magic Arrows
 ### The Mindburn spell
 ### Petrification Magic
+### The Rift
+#### Locations in the Rift
 ### The Sorcerer's Runes
 #### Secret Runes
 ##### Necromancy
-###### Katabasis
 ###### Purposes
 ###### Spells
-###### Summoning
 ##### Necrurgy
 # The World
 ## Celestial Bodies
 ### The Arrow
 ### The Gates
+### Gloon'srikzo, The Nephite Moon
 ### The Red Star
 ### Segil'reld, The Great Bird
 ### The Wall
@@ -149,6 +154,7 @@
 ## Materials
 ### Kindlscal
 ### Malaphine
+### Oxeblas Gems
 ## Regions
 ### The First Continent, Primus
 #### Blood Plains
