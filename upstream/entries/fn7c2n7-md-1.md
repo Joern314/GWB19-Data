@@ -1,0 +1,2 @@
+# None [None]
+[Primarily free mages will copy the waidmänners skill with bows and magic spells for arrows then. Still a fast way to churn out arcane archers with all kinds of combat skills. Plus whatever they pick up from watching your dudes.]

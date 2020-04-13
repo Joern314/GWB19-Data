@@ -1,0 +1,2 @@
+# None [None]
+Glypha smiled. "I thank you for your gift, dear Lyva. I am glad your offspring is gestating well. I do however sadly have not the possibility to share my blood with you. As I have none. If you need blood you should talk to Azrakal, however disgusting I find him to be, he would be the god to have blood. The only thing I can offer you is flesh and maybe bone.", she replied still smiling her creepy doll smile.

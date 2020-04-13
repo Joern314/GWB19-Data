@@ -1,0 +1,2 @@
+# None [None]
+"I cannot stand Kain, but Zara has done nothing to deserve judgement. Well, beyond blowing everything up regularly, but demigods will be wild with their powers, whether explosion, combustion, or collection." She nipped his ear playfully, "And if you want to create more, you can try, but I'm not aiding more drain to my power until Yana can recompense me somewhat. I wonder what kind of egg you would lay?"

@@ -1,0 +1,4 @@
+# None [None]
+Lyva was somewhat flighty, she regularly called Gon when Yana was in a bad mood, but appreciated his breaks and often stayed with him nonetheless. On this occasion she was in her tungsten armoured form once more, a habit she had taken simply to save her wearing anything that Yana might ignite.     
+
+"Well, these past years have felt much fuller than most. It reminds me of my youth, every day was new, while without the focus, days just mixed together and skipped by." She yawned and leaned on him, "I think mother-ing has been more fun than hassle so far. Though occasionally I miss when they were in their egg, that stage was nice. How is my partner in parenting?"

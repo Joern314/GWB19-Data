@@ -1,0 +1,2 @@
+# None [None]
+Malaphet had been, as was his custom, watching everything that occurred when he noticed some small being slinging explosions into space. He had seen this being only a couple times, wandering about in the company of one of the meal-deniers. Slowly he moved a tentacle into the proximity of the entity who was throwing explosions about, though he made no movement other then to observe the small thing.

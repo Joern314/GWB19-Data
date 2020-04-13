@@ -1,0 +1,6 @@
+# None [None]
+"Eat? It's draining power from me, don't tell me they need to eat on top of that..." Lyva sighed, then licked her lips, "Greedy little thing. I suppose I'm no different. Eating is good, and if that means it takes less power from me then... Hmmph, I've got some food I can chew down- not metal, I know- then kiss into their mouth. Bird style."    
+
+She kissed him as if to demonstrate, then winced as the baby grabbed her hair and she had to extricate her golden locks. "As for travel, we're under the right continent. We just walk and glide. I think... hmm, that should make a good nursery, but I might search for some volcanic cave with fewer goblins too when they're bigger. Prismari's child hasn't enjoyed being stuck on the moon, I'd like to show them some sunshine before they grow up next year."      
+
+She took his hand and began to lead him through the caves, then frowned and gestured for Gon to lead, certain that he would find a route through the earth.

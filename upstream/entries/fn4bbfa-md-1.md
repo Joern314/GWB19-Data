@@ -1,0 +1,4 @@
+# None [None]
+Lyva was not to be found in the tower of the moon, instead she was coiled around and throughout the volcano of her making in the Kiln Isles. Rather than her humanoid guise, as Glypha approached she was a great draconic serpent, colossal on a scale with hills, golden metallic scales glowing warm with heat and much of her vanishing within the molten crater.     
+
+"Hmm... greetings Glypha. Do you still have that stone?"

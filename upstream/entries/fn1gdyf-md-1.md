@@ -1,0 +1,6 @@
+# None [None]
+There was a divine sigh, then Lyva appeared in a golden flash, dressed in an emerald gemstone dress that hugged her figure, golden ornaments covering her patina bronze skin.   
+
+"Aren't you tall enough to reach the door handle yet?" Lyva sighed, turning to the little girl. She picked her up under the arms, and sat on her long tail, coiling it under her, "See this? Use your tail, Zara, it's as long as the rest of you."     
+
+"Now... Prismari, this door was broken by your daughter, so your daughter is going to fix it. Can you make metal slime, little one? There's an art in the world I came from, where when something is broken, it's stuck back together with molten metal acting as the glue, so it gets beautiful metal patterns through the cracks when it's together. I think my door would look wonderful like that, don't you?"
