@@ -1,0 +1,1 @@
+"Excellent! So let us start then. I already have the minds I wish to conjure for the transport of skills to hand. The sooner we start, the sooner we can finish. And if the experiment goes well, we could maybe even expand this form of production to a whole new kind of mortals."

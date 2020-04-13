@@ -1,0 +1,3 @@
+"Darling, you're losing track again. She was foisted on you fifteen years ago. When I was that age, I had been challenged to manage a century without enslaving anyone. Go sleep." She tapped him on the head, coiled her tail around Zara to carry her, and sat down amidst the pile of crystalline debris.    
+
+"Now, Zara, Demigoddess of Explosions. Your job is to lick all the edges of these fragments with that blobby little tongue, and if my door is better than it was before, with a pretty pattern, then that means you deserve paid." She offered the child a fragment to lick, and leaned close, "Paid means I give you something you want."

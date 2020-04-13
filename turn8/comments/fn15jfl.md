@@ -1,0 +1,7 @@
+"Lyva." Gon exhaled as he swung the Retaliator at an imagined enemy in practice; a simple acknowledgement of her appearance. It seemed as if he was trying to correctly recognize the traces of divinity around them without looking. He had come up to the moon to train himself more, hoping to figure out how to shift forms again and on command without going feral.
+
+He was once more dressed in simple white robes and in his Gryn form. His left hand was still wrapped with bandages and ended in a clawed hand. Though now, since Lyva had taken in some of his blood the runes there now seemed to glow softly golden through the bandage. He finished a few more swings and practiced forms, before turning towards her. Noticing her state, he sighed and sheathed the Retaliator. He strode up to her and, in spite of himself, ran a hand through her hair to try to calm her down a little before crouching down in front of her.
+
+"I did... but why would you? You and Prismari had that brat. Oryllia... and this is a guess... but she probably means that... not facing the consequences of your choices isn't right... That a parent shouldn't abandon their own child." He said firmly but quietly. Then he stood up and walked a few paces away, not turning to face her. He might have been doing it for his own benifit.
+
+"Why have you come to me? Do you think me som- What am I to you, Lyva?" Gon asked in an angry tone, folding his arms, and keeping his back to her.

@@ -1,0 +1,9 @@
+"How can I believe you, Lyva? You've kept me at arms length since we got here. You basically live with Prismari, how do I know you haven't been simply milking treats off Prismari; avoiding telling me? Flaying Azrakal? Prismari. Your people on your little islands, do they know of me? They know of *Prismari,* don't they? ...They believe you somehow lover to the Sorcerer, I hear the cries of vengeance against that little vampire toy of yours, serpent goddess, mother to Sunda, mother to this creature... eventually... who knows what else..." Gon ranted, shook his head, and rounded on her pointing at her with his clawed hand.
+
+"What am I? Your consort? Just a plaything? Someone to make fun of while you cozy up to the other gods? If that is all I am... to have a child behind my back like this..." He said as a fury crept into his eyes, he exhaled and smoothed his feathers back down. He put his clawed hand over where her heart now rested in his body and walked up to her, crouching down in front of her once more. His face was an odd mix of concern and his own frustration.
+
+"I want to believe you, Lyva... and I do treasure your heart... I am a god of vengeance... but you... I... you are the only one I think I could ever *forgive*... but I need the truth." He said very quietly, with a deep sadness.
+
+"Only to *you* I could ever show mercy... but I won't...no, I can't... watch you raise some other god's child... it would be too much for me." Gon admitted softly. "If that is what comes of this..."
+
+"I am willing to listen to you *now*, but later... Tell me, how do you know Kain did this? Do you know where or how? Do you have anything that can back up your story?"

@@ -1,0 +1,1 @@
+[\-9 for various techs, and -2 to tell people about them](https://www.reddit.com/r/GodhoodWB/comments/fylavg/endless_pantheon_turn_8/fn8eixy?utm_source=share&utm_medium=web2x)

@@ -1,0 +1,1 @@
+"What's that meant to mean? I am a picture of divinity and beauty, how does my true form look threatening?" Lyva rolled onto her front, looking up at Glypha with mirth in her eyes, "That said I appreciate it but Yana will not be this small for long. When they are bigger I'll return Crow and you can assign him to whichever young you want."

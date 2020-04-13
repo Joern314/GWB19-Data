@@ -1,0 +1,3 @@
+Glypha nodded. "The Sorcerer and I were indeed busy. But we did not make this. This is Crow. Crow is a little dimwitted. But fireproof and I made it take care of children. It doesn't look like much, but it is a sentient artifact. So it might be able to help you." Glypha turned to the construct in child form. "Go play with the baby. Sing it a song or something. I think the mommy is tired." 
+
+Crow had a look like a simpleton on its face. Nodded and began singing and walking towards Lyva and Yana. Whenever the construct moved the creak of rusty metal could be heard faintly from within.

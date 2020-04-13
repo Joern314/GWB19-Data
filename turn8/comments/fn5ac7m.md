@@ -1,0 +1,5 @@
+"Did Lyva not tell you that she contemplated it as well?" Gon whispered in response. "Or do you remember that time she flayed someone? Wanted to rip off your father's leg? Are you quite confident you should be declaring people villains, Prismari?"
+
+"It is all well and good for you to pardon your own father, Prismari. One might say it is to be... expected. And while I don't recall agreeing to making this place neutral... I only asked for words with him. If you're so worried, tell him this; I don't want his traitorous feet on any patch of my Earth. Or the green moon." He said with a hollow voice.
+
+"I didn't know there was a painting..." The gryn god squatted down to Zara's height with a smile as he put away the black book. "Prismari, here, never bothered to invite me into this nice house you have here, little one. What is your name?"

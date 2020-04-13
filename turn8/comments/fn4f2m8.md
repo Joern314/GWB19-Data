@@ -1,0 +1,3 @@
+Glypha shrugged. "I will leave a portion anyway. In case you or the child will be hungry." Glypha took a knife from within her dress and unceremoniously cut off her arm. Indeed there was no blood flowing. "I hope that will suffice. I can bring more later, if you wish." Glypha said still smiling.
+
+Listening to Lyva's request for Glypha to visit the child, she said. "Of course! I'd be honored to meet the little one once it arrives. Do you have any idea yet what form or divine sphere it is going to have, so I might think on a present for the child. For it does not own everything I assume."

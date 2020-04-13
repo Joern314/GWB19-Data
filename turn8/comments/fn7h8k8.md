@@ -1,0 +1,1 @@
+Zara who had been undergoing training with Prismari was rather use to being hit in the head and so looked at gnawy  as she was promptly punched in the head smiled and laughed “your suppose to run away now silly “ she grinned “I’m it now “

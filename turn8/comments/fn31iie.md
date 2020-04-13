@@ -1,0 +1,2 @@
+"Oh dear," Lyva replied in a hush tone, "But it will make you better. I think you might be big and tall like me given a couple of centuries, don't you?"    
+She grinned and stood up, conjuring a mirror to look at her hair, grin, and show it to Zara, "Wow, we're matching, very well done. Now, time to go, so blow up the door and get back to Prismari, alright?"
