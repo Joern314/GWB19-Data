@@ -1,0 +1,6 @@
+# None [None]
+“Lyva you may not think you would show any of those things you have mentioned... sure they go l against your very greed  sphere. but I have see all of those qualities with in you you have show to be caring and compassionate soul... at the least to me ... if you would just let this baby in you be a great mother.... we would be great parent. We do cover each other flaws after all.” Prismari said with a large hopeful smile 
+
+“ don’t let this child grow up similarly to what I did... thinking it has one parent... let’s do this together my love..... if you don’t are you only just proving the point your saying kain is trying to make!” Prismari pleads he had made up his mind to rise this child but hope beyond hoped lyva would join him in his efforts
+
+“Oh lyva what ever are you talking about. I only came to meet the child... I would never harm her or give her away.” Kain said with a smug smile “ losing babies I have done  giving them a way that just seems spiteful.” Kain said his smile never faded

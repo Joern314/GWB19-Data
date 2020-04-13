@@ -1,0 +1,2 @@
+# None [None]
+"(Incomprehensible Gibberish)" Malaphet responded with a low rumble, His tendril maneuvering to look at the explosion.

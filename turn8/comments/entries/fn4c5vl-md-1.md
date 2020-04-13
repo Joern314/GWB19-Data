@@ -1,0 +1,4 @@
+# None [None]
+Glypha from within one of her pockets produced the stone. "Wouldn't dream about losing it!", she said with a smile. "But I thought in light of recent events a visit would be a better idea than summoning you away in your current condition. My visit serves two purposes. For one I want to offer my congratulations on your current circumstances. I am wishing you all the best in the production of your offspring. If you need me to knit it a physical body just let me know." Glypha said smiling. "I have heard it is customary to give expecting mother's gifts. But I have no idea what to give the dragon, who by her own logic owns everything. So if you know what you or your little one require, I am happy to provide, if it is within my remit."
+
+Glypha paused a second. "The second reason for my visit, I do have need of those iron needles we talked about. The Sorcerer approached me about a joint project that has my interest, but bone needles won't cut it I fear."

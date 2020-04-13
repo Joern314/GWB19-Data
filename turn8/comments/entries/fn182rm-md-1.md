@@ -1,0 +1,6 @@
+# None [None]
+"Gon. You're my consort. You fascinate me, inspire me, make me enjoy spending time with you, whether fighting, loving or talking. Presents are nice, but they're hard with Gods... I treasure your blood, and I hope you treasure my heart." She said softly, rage turning to sorrow as the tears broke.   
+
+"Clearly I've done something wrong if you think I'd have a child without spending years milking carrying them for every treat I could." Lyva muttered bitterly, pulling her tail close. "That child... does have some of my essence in it. Somehow, some of my essence, Prismari's essence, and a lot of Prismari's power created a demigod, which then appeared at my chambers after Kain, who is leeching off Prismari's power, knocked my door and vanished and now claims complete innocence."     
+
+"Maybe I could believe gods spontaneously arising from my sheddings when the world was new, Sunda was a full divine like Sarah or Yashqal. But this... urgh, I think he's trying to prove how hard parenting is. Which I know, anyone who's known me for a minute would know I'd be a terrible mother, I know that, that's why I'm not a mother!" she thrashed, kicking and lashing her tail on the moons surface in a ridiculous tantrum, frustration and emotion boiling over.

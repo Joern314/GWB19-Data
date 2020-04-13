@@ -1,0 +1,3 @@
+# None [None]
+"No, I own everything, not it. But I'll try and share with it, thankyou," Lyva's tongue flicked out and snapped down the arm, not concerned with the strange biology. Then she slithered slightly, massive maw sliding close enough to touch Glyph, the metal scales hot as if out of a forge.    
+"No others know this yet, but I believe it shall be demigod of magma. I held that sphere for a short time, and still love it, and it feels much the same. But I would enjoy surprising others, if you can keep it a secret?" She hissed, surprisingly quietly for her titanic size.

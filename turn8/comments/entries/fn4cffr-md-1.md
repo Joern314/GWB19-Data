@@ -1,0 +1,2 @@
+# None [None]
+"So you do wish me to create a body for a mind you wish to knit in a similar fashion to what I am doing to mortal flesh?" Glypha thought for a moment. "Sounds like a logical extension of what the jumbled are doing. If this works it could be of great help to my people. The ability to preserve not even the mortal bodies but also the parts of mortal minds sounds like a wonderful thing."

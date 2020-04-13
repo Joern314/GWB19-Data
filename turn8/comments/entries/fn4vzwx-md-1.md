@@ -1,0 +1,4 @@
+# None [None]
+"Of course, we can take... them to see Nkom or the court! Wait... how are we going to get them there? Demigods... can't travel like divine beings as far as I can remember." Gon said as he leaned back from the little ball of flames that the demigod produced as he was cradling it. He had the sense to turn off the vengeance aura in the child's presence, thankfully. The new father looked to Lyva with a head tilt while letting the child play with one of his hands.
+
+"Hrrm, what does it eat? You don't feed it? No, I suppose that's not how it works..."
