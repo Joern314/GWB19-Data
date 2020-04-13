@@ -1,4 +1,4 @@
-# Vampirism [Miracle]
+# Vampirism [Miracles]
 
 Created: /u/Plintstorm  
 Main Creation: [Turn 6](https://www.reddit.com/r/GodhoodWB/comments/fv4ovs/endless_pantheon_turn_6/fmha126/)
